@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-05 | [アクレイ湖畔のタイ・モール・トロサックス, スコットランド (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_JA-JP2501639966_UHD.jpg) 
+
 2022-11-02 | [ムンナルの茶畑, インド ケララ州 (© Mazur Travel/Shutterstock)](https://global.bing.com/th?id=OHR.TeaPlantationsMunnar_JA-JP8832260762_UHD.jpg) 
 
 2022-10-28 | [Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) 
