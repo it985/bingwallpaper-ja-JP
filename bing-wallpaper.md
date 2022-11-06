@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-07 | [赤い実をついばむシジュウカラ (© Aflo Co., Ltd./Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Ritto2022_JA-JP3184739369_UHD.jpg) 
+
 2022-11-06 | [ヴェラザノ＝ナローズ橋, 米国 ニューヨーク (© David Madison/Getty Images)](https://global.bing.com/th?id=OHR.MarathonSunday_JA-JP2868800230_UHD.jpg) 
 
 2022-11-05 | [アクレイ湖畔のタイ・モール・トロサックス, スコットランド (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_JA-JP2501639966_UHD.jpg) 
