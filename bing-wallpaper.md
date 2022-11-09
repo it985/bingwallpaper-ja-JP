@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-10 | [岩石層と落雷, 米国 サウスダコタ州 (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_JA-JP4361852905_UHD.jpg) 
+
 2022-11-09 | [ナミハリネズミ, イギリス (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_JA-JP4086010383_UHD.jpg) 
 
 2022-11-08 | [イーペン祭り, タイ チェンマイ (© Suttipong Sutiratanachai/Getty Images)](https://global.bing.com/th?id=OHR.YiPeng_JA-JP3550160627_UHD.jpg) 
