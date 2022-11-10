@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-11 | [アーブー山, インド ラージャスターン州 (© saiko3p/Shutterstock)](https://global.bing.com/th?id=OHR.MountAbu_JA-JP4539299290_UHD.jpg) 
+
 2022-11-10 | [岩石層と落雷, 米国 サウスダコタ州 (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_JA-JP4361852905_UHD.jpg) 
 
 2022-11-09 | [ナミハリネズミ, イギリス (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_JA-JP4086010383_UHD.jpg) 
