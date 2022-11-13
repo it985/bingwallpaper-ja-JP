@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-14 | [中世の要塞, ギリシャ ハルキ島 (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_JA-JP5252882186_UHD.jpg) 
+
 2022-11-13 | [シルヴェンシュタインダムに注ぐイーザル川, ドイツ (© Martin Siepmann/Offset/Shutterstock)](https://global.bing.com/th?id=OHR.IsarwinkelSylvenstein_JA-JP5051632934_UHD.jpg) 
 
 2022-11-12 | [ハクトウワシの休息, 米国 アラスカ州 (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_JA-JP4825839071_UHD.jpg) 
