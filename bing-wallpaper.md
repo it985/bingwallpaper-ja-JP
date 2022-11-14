@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-15 | [泳ぐカナダカワウソ, 米国 メイン州 (© George Sanker/Minden Pictures)](https://global.bing.com/th?id=OHR.LontraCanadensis_JA-JP5477531401_UHD.jpg) 
+
 2022-11-14 | [中世の要塞, ギリシャ ハルキ島 (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_JA-JP5252882186_UHD.jpg) 
 
 2022-11-13 | [シルヴェンシュタインダムに注ぐイーザル川, ドイツ (© Martin Siepmann/Offset/Shutterstock)](https://global.bing.com/th?id=OHR.IsarwinkelSylvenstein_JA-JP5051632934_UHD.jpg) 
