@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-16 | [メサ・ヴェルデの岩窟住居群, 米国 コロラド州 (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_JA-JP5696250771_UHD.jpg) 
+
 2022-11-15 | [泳ぐカナダカワウソ, 米国 メイン州 (© George Sanker/Minden Pictures)](https://global.bing.com/th?id=OHR.LontraCanadensis_JA-JP5477531401_UHD.jpg) 
 
 2022-11-14 | [中世の要塞, ギリシャ ハルキ島 (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_JA-JP5252882186_UHD.jpg) 
