@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-18 | [王宮の門, モロッコ フェズ (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_JA-JP4624481816_UHD.jpg) 
+
 2022-11-17 | [マッケンジー・リバー・トレイル, 米国 オレゴン州 (© Don Paulson/Danita Delimont)](https://global.bing.com/th?id=OHR.McKenzieRiverTrail_JA-JP5966676358_UHD.jpg) 
 
 2022-11-16 | [メサ・ヴェルデの岩窟住居群, 米国 コロラド州 (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_JA-JP5696250771_UHD.jpg) 
