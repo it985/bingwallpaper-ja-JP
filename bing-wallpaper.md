@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-19 | [ザイオン国立公園のバージン川, 米国 ユタ州 (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.ZNPVR_JA-JP4870770425_UHD.jpg) 
+
 2022-11-18 | [王宮の門, モロッコ フェズ (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_JA-JP4624481816_UHD.jpg) 
 
 2022-11-17 | [マッケンジー・リバー・トレイル, 米国 オレゴン州 (© Don Paulson/Danita Delimont)](https://global.bing.com/th?id=OHR.McKenzieRiverTrail_JA-JP5966676358_UHD.jpg) 
