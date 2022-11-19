@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-20 | ["ワールド・イン・プログレス II" サイープ, 米国 ニューヨーク市 (© Valentin Flauraud/Shutterstock)](https://global.bing.com/th?id=OHR.LandartPainting_JA-JP5127648150_UHD.jpg) 
+
 2022-11-19 | [ザイオン国立公園のバージン川, 米国 ユタ州 (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.ZNPVR_JA-JP4870770425_UHD.jpg) 
 
 2022-11-18 | [王宮の門, モロッコ フェズ (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_JA-JP4624481816_UHD.jpg) 
