@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-23 | [ひまわりとフィボナッチ数列 (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_JA-JP6094861332_UHD.jpg) 
+
 2022-11-22 | [兼六園, 金沢 (© Darby Sawchuk/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Shousetsu_kenrokuen_2022_JA-JP1329174286_UHD.jpg) 
 
 2022-11-21 | [アフメド・ビン＝アリー・スタジアム, カタール ドーハ (© Qatar 2022/Supreme Committee via Getty Images)](https://global.bing.com/th?id=OHR.FIFA2022_JA-JP5434338503_UHD.jpg) 
