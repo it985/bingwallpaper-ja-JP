@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-24 | [カンペンヴァント山, ドイツ バイエルン州 (© Toni Anzenberger/plainpicture)](https://global.bing.com/th?id=OHR.AschauChiemgau_JA-JP6496144406_UHD.jpg) 
+
 2022-11-23 | [ひまわりとフィボナッチ数列 (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_JA-JP6094861332_UHD.jpg) 
 
 2022-11-22 | [兼六園, 金沢 (© Darby Sawchuk/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Shousetsu_kenrokuen_2022_JA-JP1329174286_UHD.jpg) 
