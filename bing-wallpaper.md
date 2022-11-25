@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-26 | [オリーブの大木とコンコルディア神殿, イタリア シチリア (© Alfio Finocchiaro/Shutterstock)](https://global.bing.com/th?id=OHR.OliveTreeDay_JA-JP7241831177_UHD.jpg) 
+
 2022-11-25 | [朝日を浴びるテュレンヌ村, フランス ヌーヴェル＝アキテーヌ (© Tim Mannakee/plainpicture)](https://global.bing.com/th?id=OHR.TurenneSunrise_JA-JP6760860042_UHD.jpg) 
 
 2022-11-24 | [カンペンヴァント山, ドイツ バイエルン州 (© Toni Anzenberger/plainpicture)](https://global.bing.com/th?id=OHR.AschauChiemgau_JA-JP6496144406_UHD.jpg) 
