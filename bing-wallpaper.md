@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-28 | [火星の夜明け (© NASA/Alamy)](https://global.bing.com/th?id=OHR.RedPlanetDay_JA-JP8455274428_UHD.jpg) 
+
 2022-11-27 | [セクロピアの葉, メキシコ (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_JA-JP7758241996_UHD.jpg) 
 
 2022-11-26 | [オリーブの大木とコンコルディア神殿, イタリア シチリア (© Alfio Finocchiaro/Shutterstock)](https://global.bing.com/th?id=OHR.OliveTreeDay_JA-JP7241831177_UHD.jpg) 
