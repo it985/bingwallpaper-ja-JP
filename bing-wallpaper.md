@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-30 | [ロヴィニ, クロアチア (© trabantos/Shutterstock)](https://global.bing.com/th?id=OHR.RovinjCroatia_JA-JP9150123532_UHD.jpg) 
+
 2022-11-29 | [オオアオサギの巣作り, 米国 フロリダ州 (© Imagebroker/Alamy)](https://global.bing.com/th?id=OHR.HeronGiving_JA-JP8774438069_UHD.jpg) 
 
 2022-11-28 | [火星の夜明け (© NASA/Alamy)](https://global.bing.com/th?id=OHR.RedPlanetDay_JA-JP8455274428_UHD.jpg) 
