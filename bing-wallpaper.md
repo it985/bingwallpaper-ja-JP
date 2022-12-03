@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-04 | [アフリカゾウの群れ, ケニア (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_JA-JP1142270129_UHD.jpg) 
+
 2022-12-03 | [マイアミビーチ, 米国 フロリダ州 (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.MiamiDT_JA-JP5319718687_UHD.jpg) 
 
 2022-11-30 | [ロヴィニ, クロアチア (© trabantos/Shutterstock)](https://global.bing.com/th?id=OHR.RovinjCroatia_JA-JP9150123532_UHD.jpg) 
