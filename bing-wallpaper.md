@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-05 | [聖ニコラウス, スイス ヴェルビエ (© Denis Balibouse/Reuters)](https://global.bing.com/th?id=OHR.StNick_JA-JP1569378838_UHD.jpg) 
+
 2022-12-04 | [アフリカゾウの群れ, ケニア (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_JA-JP1142270129_UHD.jpg) 
 
 2022-12-03 | [マイアミビーチ, 米国 フロリダ州 (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.MiamiDT_JA-JP5319718687_UHD.jpg) 
