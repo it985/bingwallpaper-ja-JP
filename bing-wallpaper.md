@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-09 | [ジャコウウシの母と子, ノルウェー (© Robert Haasmann/Minden Pictures)](https://global.bing.com/th?id=OHR.NorwayMuskox_JA-JP2556690110_UHD.jpg) 
+
 2022-12-05 | [聖ニコラウス, スイス ヴェルビエ (© Denis Balibouse/Reuters)](https://global.bing.com/th?id=OHR.StNick_JA-JP1569378838_UHD.jpg) 
 
 2022-12-04 | [アフリカゾウの群れ, ケニア (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_JA-JP1142270129_UHD.jpg) 
