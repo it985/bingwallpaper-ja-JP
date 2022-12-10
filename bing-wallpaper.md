@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-11 | [ロスシュタインとブッフシュタイン, ドイツ バイエルン州 (© Christian Bäck/eStock Photo)](https://global.bing.com/th?id=OHR.BuchsteinRossstein_JA-JP3133767278_UHD.jpg) 
+
 2022-12-10 | [ウユニ塩湖, ボリビア (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_JA-JP2809649437_UHD.jpg) 
 
 2022-12-09 | [ジャコウウシの母と子, ノルウェー (© Robert Haasmann/Minden Pictures)](https://global.bing.com/th?id=OHR.NorwayMuskox_JA-JP2556690110_UHD.jpg) 
