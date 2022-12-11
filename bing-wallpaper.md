@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-12 | [ポインセチア (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_JA-JP3377889721_UHD.jpg) 
+
 2022-12-11 | [ロスシュタインとブッフシュタイン, ドイツ バイエルン州 (© Christian Bäck/eStock Photo)](https://global.bing.com/th?id=OHR.BuchsteinRossstein_JA-JP3133767278_UHD.jpg) 
 
 2022-12-10 | [ウユニ塩湖, ボリビア (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_JA-JP2809649437_UHD.jpg) 
