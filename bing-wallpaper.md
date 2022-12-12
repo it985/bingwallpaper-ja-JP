@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-13 | [ハルシュタット, オーストリア (© Jon Arnold Images Ltd/Alamy)](https://global.bing.com/th?id=OHR.InstagramHallstatt_JA-JP3616440039_UHD.jpg) 
+
 2022-12-12 | [ポインセチア (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_JA-JP3377889721_UHD.jpg) 
 
 2022-12-11 | [ロスシュタインとブッフシュタイン, ドイツ バイエルン州 (© Christian Bäck/eStock Photo)](https://global.bing.com/th?id=OHR.BuchsteinRossstein_JA-JP3133767278_UHD.jpg) 
