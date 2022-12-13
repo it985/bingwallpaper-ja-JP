@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-14 | [アグネル湖とセル湖, イタリア (© agustavop/Getty Images)](https://global.bing.com/th?id=OHR.GranParadiso100th_JA-JP3864163368_UHD.jpg) 
+
 2022-12-13 | [ハルシュタット, オーストリア (© Jon Arnold Images Ltd/Alamy)](https://global.bing.com/th?id=OHR.InstagramHallstatt_JA-JP3616440039_UHD.jpg) 
 
 2022-12-12 | [ポインセチア (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_JA-JP3377889721_UHD.jpg) 
