@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-16 | [アトランタ ボタニカル ガーデン, 米国 ジョージア州 (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_JA-JP7059875075_UHD.jpg) 
+
 2022-12-15 | [ボロヴェッツ スキーリゾート, ブルガリア (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_JA-JP8649079597_UHD.jpg) 
 
 2022-12-14 | [アグネル湖とセル湖, イタリア (© agustavop/Getty Images)](https://global.bing.com/th?id=OHR.GranParadiso100th_JA-JP3864163368_UHD.jpg) 
