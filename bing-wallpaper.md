@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-17 | [シロイワヤギ, 米国 モンタナ州 (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_JA-JP2028040085_UHD.jpg) 
+
 2022-12-16 | [アトランタ ボタニカル ガーデン, 米国 ジョージア州 (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_JA-JP7059875075_UHD.jpg) 
 
 2022-12-15 | [ボロヴェッツ スキーリゾート, ブルガリア (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_JA-JP8649079597_UHD.jpg) 
