@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-18 | [マイアミ サウス・ビーチ, 米国 フロリダ州 (© Claudia Uripos/eStock Photo)](https://global.bing.com/th?id=OHR.SouthBeach_JA-JP2259352200_UHD.jpg) 
+
 2022-12-17 | [シロイワヤギ, 米国 モンタナ州 (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_JA-JP2028040085_UHD.jpg) 
 
 2022-12-16 | [アトランタ ボタニカル ガーデン, 米国 ジョージア州 (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_JA-JP7059875075_UHD.jpg) 
