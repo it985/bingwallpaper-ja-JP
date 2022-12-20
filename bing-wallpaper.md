@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-21 | [ギャラリー・ラファイエットのクリスマスツリー, フランス (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_JA-JP6784478970_UHD.jpg) 
+
 2022-12-20 | [ベルヴェデーレ宮殿, オーストリア ウィーン (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_JA-JP2745578979_UHD.jpg) 
 
 2022-12-19 | [ショウジョウコウカンチョウ, 米国 イリノイ州 (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_JA-JP2511060992_UHD.jpg) 
