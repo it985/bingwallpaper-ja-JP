@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-22 | [アンテルモイア湖上空の日暈, イタリア (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_JA-JP3275904234_UHD.jpg) 
+
 2022-12-21 | [ギャラリー・ラファイエットのクリスマスツリー, フランス (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_JA-JP6784478970_UHD.jpg) 
 
 2022-12-20 | [ベルヴェデーレ宮殿, オーストリア ウィーン (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_JA-JP2745578979_UHD.jpg) 
