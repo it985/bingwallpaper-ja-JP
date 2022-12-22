@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-23 | [湘南の宝石, 神奈川 (© kittikun thienthong/Shutterstock)](https://global.bing.com/th?id=OHR.Enoshima_lighthouse2022_JA-JP3585685207_UHD.jpg) 
+
 2022-12-22 | [アンテルモイア湖上空の日暈, イタリア (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_JA-JP3275904234_UHD.jpg) 
 
 2022-12-21 | [ギャラリー・ラファイエットのクリスマスツリー, フランス (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_JA-JP6784478970_UHD.jpg) 
