@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-24 | [アマルガ港のクリスマスツリー, 米国 アラスカ (© Mark Kelley/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmalgaTree_JA-JP3864422935_UHD.jpg) 
+
 2022-12-23 | [湘南の宝石, 神奈川 (© kittikun thienthong/Shutterstock)](https://global.bing.com/th?id=OHR.Enoshima_lighthouse2022_JA-JP3585685207_UHD.jpg) 
 
 2022-12-22 | [アンテルモイア湖上空の日暈, イタリア (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_JA-JP3275904234_UHD.jpg) 
