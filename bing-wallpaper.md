@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-25 | [ストラスブールのクリスマス, フランス (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_JA-JP8534643006_UHD.jpg) 
+
 2022-12-24 | [アマルガ港のクリスマスツリー, 米国 アラスカ (© Mark Kelley/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmalgaTree_JA-JP3864422935_UHD.jpg) 
 
 2022-12-23 | [湘南の宝石, 神奈川 (© kittikun thienthong/Shutterstock)](https://global.bing.com/th?id=OHR.Enoshima_lighthouse2022_JA-JP3585685207_UHD.jpg) 
