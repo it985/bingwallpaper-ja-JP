@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-26 | [ビバリー・ウェストウッドのブラックミル, 英国 (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_JA-JP4358160111_UHD.jpg) 
+
 2022-12-25 | [ストラスブールのクリスマス, フランス (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_JA-JP8534643006_UHD.jpg) 
 
 2022-12-24 | [アマルガ港のクリスマスツリー, 米国 アラスカ (© Mark Kelley/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmalgaTree_JA-JP3864422935_UHD.jpg) 
