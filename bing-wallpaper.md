@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-27 | [ブルーラグーン, アイスランド グリンダヴィーク (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.BlueLagoon_JA-JP4946711917_UHD.jpg) 
+
 2022-12-26 | [ビバリー・ウェストウッドのブラックミル, 英国 (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_JA-JP4358160111_UHD.jpg) 
 
 2022-12-25 | [ストラスブールのクリスマス, フランス (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_JA-JP8534643006_UHD.jpg) 
