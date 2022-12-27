@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-28 | [マローヤの冬景色, スイス (© Roberto Moiola/Getty)](https://global.bing.com/th?id=OHR.ChiesaBianca_JA-JP5162517168_UHD.jpg) 
+
 2022-12-27 | [ブルーラグーン, アイスランド グリンダヴィーク (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.BlueLagoon_JA-JP4946711917_UHD.jpg) 
 
 2022-12-26 | [ビバリー・ウェストウッドのブラックミル, 英国 (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_JA-JP4358160111_UHD.jpg) 
