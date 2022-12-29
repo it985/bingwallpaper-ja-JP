@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-30 | [ホワイトデザート, エジプト (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.ChalkRock_JA-JP9713256399_UHD.jpg) 
+
 2022-12-29 | [蝶のカップル (© Misja Smits/Minden Pictures)](https://global.bing.com/th?id=OHR.ButterflyEffect_JA-JP5566136636_UHD.jpg) 
 
 2022-12-28 | [マローヤの冬景色, スイス (© Roberto Moiola/Getty)](https://global.bing.com/th?id=OHR.ChiesaBianca_JA-JP5162517168_UHD.jpg) 
