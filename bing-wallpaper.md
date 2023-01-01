@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-02 | [スバールバル諸島のホッキョクグマ, ノルウェー (© Dennis Stogsdill/Getty Images)](https://global.bing.com/th?id=OHR.NorwayNYD_JA-JP8138531411_UHD.jpg) 
+
 2023-01-01 | [富士山と日の出 (© Carlos Lorenzo/Shutterstock)](https://global.bing.com/th?id=OHR.Gantan2023_JA-JP0780615179_UHD.jpg) 
 
 2022-12-31 | [東大寺の梵鐘, 奈良 (© Yellow Cat/Shutterstock)](https://global.bing.com/th?id=OHR.Nara_TodaijiBell2022_JA-JP0129080752_UHD.jpg) 
