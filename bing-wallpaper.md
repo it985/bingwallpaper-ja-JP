@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-08 | [ブリッケンリッジ, 米国 コロラド州 (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.Breckenridge_JA-JP9779581572_UHD.jpg) 
+
 2023-01-07 | [ウールとモヘアの毛糸玉 (© Jurate Buiviene/Alamy)](https://global.bing.com/th?id=OHR.Mohair_JA-JP9567347194_UHD.jpg) 
 
 2023-01-06 | [ブラックフェル, イギリス (© Daniel Kay/Shutterstock)](https://global.bing.com/th?id=OHR.BlackFell_JA-JP9311310014_UHD.jpg) 
