@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-09 | [バッファロー, 米国 サウスダコタ州 (© Charlie Summers/Minden Pictures)](https://global.bing.com/th?id=OHR.BisonWindCave_JA-JP1674210211_UHD.jpg) 
+
 2023-01-08 | [ブリッケンリッジ, 米国 コロラド州 (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.Breckenridge_JA-JP9779581572_UHD.jpg) 
 
 2023-01-07 | [ウールとモヘアの毛糸玉 (© Jurate Buiviene/Alamy)](https://global.bing.com/th?id=OHR.Mohair_JA-JP9567347194_UHD.jpg) 
