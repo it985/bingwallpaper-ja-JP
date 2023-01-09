@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-10 | [ハンモックアイス, エストニア (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.HummockIce_JA-JP0176367328_UHD.jpg) 
+
 2023-01-09 | [バッファロー, 米国 サウスダコタ州 (© Charlie Summers/Minden Pictures)](https://global.bing.com/th?id=OHR.BisonWindCave_JA-JP1674210211_UHD.jpg) 
 
 2023-01-08 | [ブリッケンリッジ, 米国 コロラド州 (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.Breckenridge_JA-JP9779581572_UHD.jpg) 
