@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-13 | [チャネル諸島国立公園, 米国 カリフォルニア州 (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_JA-JP5507470502_UHD.jpg) 
+
 2023-01-12 | [ルメリ・ヒサルの城塞, トルコ (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_JA-JP1470012953_UHD.jpg) 
 
 2023-01-11 | ["Umschreibung" オラファー・エリアソン, ドイツ (© Manfred Bail/Alamy)](https://global.bing.com/th?id=OHR.Umschreibung_JA-JP1758992823_UHD.jpg) 
