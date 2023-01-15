@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-16 | [ミッチェナー山と凍ったアブラハムレイク, カナダ アルバータ州 (© Tom Mackie/plainpicture)](https://global.bing.com/th?id=OHR.FrozenBubblesAlberta_JA-JP6003853468_UHD.jpg) 
+
 2023-01-15 | [トゥルクのアウラ川, フィンランド (© Jarmo Piironen/Alamy)](https://global.bing.com/th?id=OHR.Turku_JA-JP5943098075_UHD.jpg) 
 
 2023-01-14 | [桜の小枝を食べている家畜のロバ (© Juniors Bildarchiv GmbH/Alamy)](https://global.bing.com/th?id=OHR.DonkeyFeast_JA-JP1957899183_UHD.jpg) 
