@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-18 | [ホワイトサンズ国定公園, 米国 ニューメキシコ州 (© Andrea Harrell/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WhiteSands_JA-JP6168922639_UHD.jpg) 
+
 2023-01-17 | [ムニエージョス生物圏保護区, スペイン (© Andres M. Dominguez/Minden Pictures)](https://global.bing.com/th?id=OHR.SessileOaks_JA-JP8576874053_UHD.jpg) 
 
 2023-01-16 | [ミッチェナー山と凍ったアブラハムレイク, カナダ アルバータ州 (© Tom Mackie/plainpicture)](https://global.bing.com/th?id=OHR.FrozenBubblesAlberta_JA-JP6003853468_UHD.jpg) 
