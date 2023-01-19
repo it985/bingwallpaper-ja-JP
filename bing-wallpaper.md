@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-20 | [雪に覆われた清水寺, 京都 (© Paitoon Pornsuksomboon/Shutterstock)](https://global.bing.com/th?id=OHR.Daikan2023_JA-JP6315927343_UHD.jpg) 
+
 2023-01-19 | [パークシティ, 米国 ユタ州 (© Kruck20/Getty Images)](https://global.bing.com/th?id=OHR.SFFParkCity_JA-JP6230793780_UHD.jpg) 
 
 2023-01-18 | [ホワイトサンズ国定公園, 米国 ニューメキシコ州 (© Andrea Harrell/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WhiteSands_JA-JP6168922639_UHD.jpg) 
