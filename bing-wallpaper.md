@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-22 | [ユキウサギ, イギリス ダービーシャー州 (© Ben Hall/Minden Pictures)](https://global.bing.com/th?id=OHR.YearRabbit_JA-JP6460790006_UHD.jpg) 
+
 2023-01-21 | [カンガルーの母子 (© Belle Ciezak/Shutterstock)](https://global.bing.com/th?id=OHR.HuggingKanga_JA-JP6402339579_UHD.jpg) 
 
 2023-01-20 | [雪に覆われた清水寺, 京都 (© Paitoon Pornsuksomboon/Shutterstock)](https://global.bing.com/th?id=OHR.Daikan2023_JA-JP6315927343_UHD.jpg) 
