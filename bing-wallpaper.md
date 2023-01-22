@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-23 | [イースター島のモアイ像, チリ (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_JA-JP6509155183_UHD.jpg) 
+
 2023-01-22 | [ユキウサギ, イギリス ダービーシャー州 (© Ben Hall/Minden Pictures)](https://global.bing.com/th?id=OHR.YearRabbit_JA-JP6460790006_UHD.jpg) 
 
 2023-01-21 | [カンガルーの母子 (© Belle Ciezak/Shutterstock)](https://global.bing.com/th?id=OHR.HuggingKanga_JA-JP6402339579_UHD.jpg) 
