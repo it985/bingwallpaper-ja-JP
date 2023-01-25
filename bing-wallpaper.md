@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-26 | [張家界天門山 天国の門, 中国 湖南省 (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.HighArchChina_JA-JP6689436859_UHD.jpg) 
+
 2023-01-25 | [バーンズ・ナイト, 英国 スコットランド (© Dennis Barnes/Getty Images)](https://global.bing.com/th?id=OHR.BirksofAberfeldy_JA-JP6623744138_UHD.jpg) 
 
 2023-01-24 | [ドロミテ山地のコッレ・サンタ・ルチーア, イタリア (© mauritius images GmbH/Alamy)](https://global.bing.com/th?id=OHR.ColleSantaLucia_JA-JP6561397295_UHD.jpg) 
