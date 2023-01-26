@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-27 | [グアナハカビベス国立公園, キューバ (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_JA-JP6180973843_UHD.jpg) 
+
 2023-01-26 | [張家界天門山 天国の門, 中国 湖南省 (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.HighArchChina_JA-JP6689436859_UHD.jpg) 
 
 2023-01-25 | [バーンズ・ナイト, 英国 スコットランド (© Dennis Barnes/Getty Images)](https://global.bing.com/th?id=OHR.BirksofAberfeldy_JA-JP6623744138_UHD.jpg) 
