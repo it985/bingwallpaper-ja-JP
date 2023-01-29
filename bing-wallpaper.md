@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-30 | [アイス・スノーセーリング世界選手権大会, ハンガリー (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IceSailingBalaton_JA-JP6368044010_UHD.jpg) 
+
 2023-01-29 | [雪の枝に留まるクロウタドリ, イギリス エセックス (© Bill Coster/Alamy)](https://global.bing.com/th?id=OHR.BlackbirdDay_JA-JP6288787593_UHD.jpg) 
 
 2023-01-28 | [国際宇宙ステーションから見たバハマ (© NASA)](https://global.bing.com/th?id=OHR.BlueBahamas_JA-JP6230732203_UHD.jpg) 
