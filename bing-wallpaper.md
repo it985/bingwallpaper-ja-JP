@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-31 | [バーチェルサバンナシマウマ, 南アフリカ (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraTrio_JA-JP6416622799_UHD.jpg) 
+
 2023-01-30 | [アイス・スノーセーリング世界選手権大会, ハンガリー (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IceSailingBalaton_JA-JP6368044010_UHD.jpg) 
 
 2023-01-29 | [雪の枝に留まるクロウタドリ, イギリス エセックス (© Bill Coster/Alamy)](https://global.bing.com/th?id=OHR.BlackbirdDay_JA-JP6288787593_UHD.jpg) 
