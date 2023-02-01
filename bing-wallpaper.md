@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-02 | [ホーエ・タウエルン国立公園のアルパインマーモット, オーストリア (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_JA-JP6525228298_UHD.jpg) 
+
 2023-02-01 | [ジャスパー国立公園, カ���ダ アルバータ州 (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.TangleCreekFalls_JA-JP6469824642_UHD.jpg) 
 
 2023-01-31 | [バーチェルサバンナシマウマ, 南アフリカ (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraTrio_JA-JP6416622799_UHD.jpg) 
