@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-04 | [初春の梅に飛来したメジロ (© tahirsphotography/Shutterstock)](https://global.bing.com/th?id=OHR.Risshun2023_JA-JP6678621305_UHD.jpg) 
+
 2023-02-03 | [枡いっぱいの節分の福豆 (© Nishihama/Shutterstock)](https://global.bing.com/th?id=OHR.Setsubun2023_JA-JP6615613834_UHD.jpg) 
 
 2023-02-02 | [ホーエ・タウエルン国立公園のアルパインマーモット, オーストリア (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_JA-JP6525228298_UHD.jpg) 
