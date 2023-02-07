@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-08 | [ウーレッドプラッセン, ノルウェー (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_JA-JP6935320347_UHD.jpg) 
+
 2023-02-07 | [ラブロ, イタリア ラツィオ州 (© Marco Ilari/Shutterstock)](https://global.bing.com/th?id=OHR.MedievalLabro_JA-JP6870890928_UHD.jpg) 
 
 2023-02-06 | [南島のフィヨルドランド国立公園， ニュージーランド (© WitR/Adobe Stock)](https://global.bing.com/th?id=OHR.WaitangiFjordlandNP_JA-JP6793291613_UHD.jpg) 
