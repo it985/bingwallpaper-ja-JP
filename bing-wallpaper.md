@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-09 | [ローワーアンテロープキャニオン, 米国 アリゾナ州 (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_JA-JP7012755127_UHD.jpg) 
+
 2023-02-08 | [ウーレッドプラッセン, ノルウェー (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_JA-JP6935320347_UHD.jpg) 
 
 2023-02-07 | [ラブロ, イタリア ラツィオ州 (© Marco Ilari/Shutterstock)](https://global.bing.com/th?id=OHR.MedievalLabro_JA-JP6870890928_UHD.jpg) 
