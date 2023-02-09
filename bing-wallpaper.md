@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-10 | [エピダウロス古代劇場, ギリシャ (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_JA-JP2347986094_UHD.jpg) 
+
 2023-02-09 | [ローワーアンテロープキャニオン, 米国 アリゾナ州 (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_JA-JP7012755127_UHD.jpg) 
 
 2023-02-08 | [ウーレッドプラッセン, ノルウェー (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_JA-JP6935320347_UHD.jpg) 
