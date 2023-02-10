@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-11 | [ザブリスキーポイント, 米国 カリフォルニア州 (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_JA-JP9282032647_UHD.jpg) 
+
 2023-02-10 | [エピダウロス古代劇場, ギリシャ (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_JA-JP2347986094_UHD.jpg) 
 
 2023-02-09 | [ローワーアンテロープキャニオン, 米国 アリゾナ州 (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_JA-JP7012755127_UHD.jpg) 
