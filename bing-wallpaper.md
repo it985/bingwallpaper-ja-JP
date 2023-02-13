@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-14 | [小樽雪あかりの路, 北海道 (© T Photography/Shutterstock)](https://global.bing.com/th?id=OHR.OtaruIgloo_JA-JP7407009120_UHD.jpg) 
+
 2023-02-13 | [アタカマ 月の谷, チリ (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.MoonValley_JA-JP7018598504_UHD.jpg) 
 
 2023-02-12 | [アオアシカツオドリ, エクアドル ガラパゴス諸島 (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.BoobyDarwinDay_JA-JP1726545443_UHD.jpg) 
