@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-16 | [ホーステール滝, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireFallYosemite_JA-JP3640379244_UHD.jpg) 
+
 2023-02-15 | [チョベ国立公園, ボツワナ (© jacobeukman/Getty Images)](https://global.bing.com/th?id=OHR.HippoDayChobe_JA-JP4157625121_UHD.jpg) 
 
 2023-02-14 | [小樽雪あかりの路, 北海道 (© T Photography/Shutterstock)](https://global.bing.com/th?id=OHR.OtaruIgloo_JA-JP7407009120_UHD.jpg) 
