@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-18 | [エベン氷穴, 米国 ミシガン州 (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_JA-JP1494181930_UHD.jpg) 
+
 2023-02-17 | [赤いカンガルーポーの枝に留まるアレンハチドリ (© GypsyPictureShow/Shutterstock)](https://global.bing.com/th?id=OHR.BirdcountAllen_JA-JP8731451204_UHD.jpg) 
 
 2023-02-16 | [ホーステール滝, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireFallYosemite_JA-JP3640379244_UHD.jpg) 
