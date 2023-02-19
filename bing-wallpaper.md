@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-20 | [カナダヅル, 米国 ニューメキシコ州 (© Jay Goodrich/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SandhillSleeping_JA-JP3893178141_UHD.jpg) 
+
 2023-02-19 | [ザトウクジラ, 米国 ハワイ州 (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_JA-JP6535898640_UHD.jpg) 
 
 2023-02-18 | [エベン氷穴, 米国 ミシガン州 (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_JA-JP1494181930_UHD.jpg) 
