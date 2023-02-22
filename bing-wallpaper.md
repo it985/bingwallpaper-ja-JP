@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-23 | [水面に映る紅富士, 山梨 (© Nyoman Sundra/Getty Images)](https://global.bing.com/th?id=OHR.MtFuji2023_JA-JP4634811404_UHD.jpg) 
+
 2023-02-22 | [パリ, フランス (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_JA-JP7691412226_UHD.jpg) 
 
 2023-02-21 | [フレンチ・クォーター ニューオリンズ, 米国 ルイジアナ州 (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_JA-JP5656868488_UHD.jpg) 
