@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-25 | [ブライスキャニオン国立公園, 米国 ユタ州 (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.BryceAnniv_JA-JP4970037032_UHD.jpg) 
+
 2023-02-24 | [リッチモンドパーク, イギリス ロンドン (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_JA-JP4769171194_UHD.jpg) 
 
 2023-02-23 | [水面に映る紅富士, 山梨 (© Nyoman Sundra/Getty Images)](https://global.bing.com/th?id=OHR.MtFuji2023_JA-JP4634811404_UHD.jpg) 
