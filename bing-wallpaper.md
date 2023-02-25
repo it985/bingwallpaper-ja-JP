@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-26 | [タンボパタ自然保護区, ペルー (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_JA-JP5592928967_UHD.jpg) 
+
 2023-02-25 | [ブライスキャニオン国立公園, 米国 ユタ州 (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.BryceAnniv_JA-JP4970037032_UHD.jpg) 
 
 2023-02-24 | [リッチモンドパーク, イギリス ロンドン (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_JA-JP4769171194_UHD.jpg) 
