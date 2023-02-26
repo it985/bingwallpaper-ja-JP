@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-27 | [ぐっすりと寝ているホッキョクグマ親子, カナダ (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_JA-JP6183765831_UHD.jpg) 
+
 2023-02-26 | [タンボパタ自然保護区, ペルー (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_JA-JP5592928967_UHD.jpg) 
 
 2023-02-25 | [ブライスキャニオン国立公園, 米国 ユタ州 (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.BryceAnniv_JA-JP4970037032_UHD.jpg) 
