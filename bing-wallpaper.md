@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-28 | [アトラーニ, イタリア カンパニア州 (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_JA-JP6744499353_UHD.jpg) 
+
 2023-02-27 | [ぐっすりと寝ているホッキョクグマ親子, カナダ (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_JA-JP6183765831_UHD.jpg) 
 
 2023-02-26 | [タンボパタ自然保護区, ペルー (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_JA-JP5592928967_UHD.jpg) 
