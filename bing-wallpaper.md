@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-01 | [フィヒテルベルク, ドイツ (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_JA-JP7896748071_UHD.jpg) 
+
 2023-02-28 | [アトラーニ, イタリア カンパニア州 (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_JA-JP6744499353_UHD.jpg) 
 
 2023-02-27 | [ぐっすりと寝ているホッキョクグマ親子, カナダ (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_JA-JP6183765831_UHD.jpg) 
