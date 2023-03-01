@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-02 | [ネグラティン貯水池, スペイン アンダルシア州 (© Andres Martinez Olmedo/Getty Images)](https://global.bing.com/th?id=OHR.NegratinSpain_JA-JP8343250865_UHD.jpg) 
+
 2023-03-01 | [フィヒテルベルク, ドイツ (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_JA-JP7896748071_UHD.jpg) 
 
 2023-02-28 | [アトラーニ, イタリア カンパニア州 (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_JA-JP6744499353_UHD.jpg) 
