@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-04 | [ピコ山, ポルトガル (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_JA-JP2263214276_UHD.jpg) 
+
 2023-03-03 | [ひな人形 (© Masayoshi Hirose/Shutterstock)](https://global.bing.com/th?id=OHR.DollsFestival2023_JA-JP1535577982_UHD.jpg) 
 
 2023-03-02 | [ネグラティン貯水池, スペイン アンダルシア州 (© Andres Martinez Olmedo/Getty Images)](https://global.bing.com/th?id=OHR.NegratinSpain_JA-JP8343250865_UHD.jpg) 
