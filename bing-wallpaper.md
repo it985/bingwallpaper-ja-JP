@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-06 | [野原に佇むアイスランドホース, アイスランド (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_JA-JP3317505817_UHD.jpg) 
+
 2023-03-05 | [アムステルダムのウォーターライディングドゥイネン自然保護区, オランダ (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_JA-JP5712335210_UHD.jpg) 
 
 2023-03-04 | [ピコ山, ポルトガル (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_JA-JP2263214276_UHD.jpg) 
