@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-07 | [元陽の棚田, 中国 雲南省 (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_JA-JP3696501560_UHD.jpg) 
+
 2023-03-06 | [野原に佇むアイスランドホース, アイスランド (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_JA-JP3317505817_UHD.jpg) 
 
 2023-03-05 | [アムステルダムのウォーターライディングドゥイネン自然保護区, オランダ (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_JA-JP5712335210_UHD.jpg) 
