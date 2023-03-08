@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-09 | [カウアイ島, 米国 ハワイ州 (© Beverley Van Praagh/Getty Images)](https://global.bing.com/th?id=OHR.WaimeaRainbow_JA-JP4261637321_UHD.jpg) 
+
 2023-03-08 | [シベーレスの噴水とマドリード市庁舎, スペイン マドリード (© dpa picture alliance/Alamy)](https://global.bing.com/th?id=OHR.IntlWomensDayChange_JA-JP4020682883_UHD.jpg) 
 
 2023-03-07 | [元陽の棚田, 中国 雲南省 (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_JA-JP3696501560_UHD.jpg) 
