@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-11 | [秋元湖の朝, 福島 (© I am happy taking photographs./Getty Images)](https://global.bing.com/th?id=OHR.Fukushima2023_JA-JP4630434917_UHD.jpg) 
+
 2023-03-10 | [イーデルの谷, イギリス (© John Finney/Getty Images)](https://global.bing.com/th?id=OHR.EdaleValley_JA-JP4269904879_UHD.jpg) 
 
 2023-03-09 | [カウアイ島, 米国 ハワイ州 (© Beverley Van Praagh/Getty Images)](https://global.bing.com/th?id=OHR.WaimeaRainbow_JA-JP4261637321_UHD.jpg) 
