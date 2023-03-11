@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-12 | [クルジュ・ナポカ国立劇場, ルーマニア (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_JA-JP5242911484_UHD.jpg) 
+
 2023-03-11 | [秋元湖の朝, 福島 (© I am happy taking photographs./Getty Images)](https://global.bing.com/th?id=OHR.Fukushima2023_JA-JP4630434917_UHD.jpg) 
 
 2023-03-10 | [イーデルの谷, イギリス (© John Finney/Getty Images)](https://global.bing.com/th?id=OHR.EdaleValley_JA-JP4269904879_UHD.jpg) 
