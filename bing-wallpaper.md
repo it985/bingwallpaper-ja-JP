@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-13 | [グロスターの湿地, 米国 マサチューセッツ州 (© Thomas H. Mitchell/Getty Images)](https://global.bing.com/th?id=OHR.LongWharf_JA-JP5630478017_UHD.jpg) 
+
 2023-03-12 | [クルジュ・ナポカ国立劇場, ルーマニア (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_JA-JP5242911484_UHD.jpg) 
 
 2023-03-11 | [秋元湖の朝, 福島 (© I am happy taking photographs./Getty Images)](https://global.bing.com/th?id=OHR.Fukushima2023_JA-JP4630434917_UHD.jpg) 
