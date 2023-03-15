@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-16 | [成都ジャイアントパンダ繁殖研究基地, 中国 四川省 (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)](https://global.bing.com/th?id=OHR.ChengduPanda_JA-JP6801734483_UHD.jpg) 
+
 2023-03-15 | [アグエロ村, スペイン アラゴン州 (© Andrea Comi/Getty Images)](https://global.bing.com/th?id=OHR.AgueroSpain_JA-JP6121503276_UHD.jpg) 
 
 2023-03-14 | [サイヘルビア植物園, キプロス (© Tpopova/Getty Images)](https://global.bing.com/th?id=OHR.CyprusMaze_JA-JP5885835896_UHD.jpg) 
