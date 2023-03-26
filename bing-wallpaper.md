@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-27 | [ニューヨーク市, 米国 (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.NYCClouds_JA-JP8300567646_UHD.jpg) 
+
 2023-03-26 | [アンザ・ボレゴ砂漠州立公園, 米国 カリフォルニア州 (© Ron and Patty Thomas/Getty Images)](https://global.bing.com/th?id=OHR.WildAnza_JA-JP8401293305_UHD.jpg) 
 
 2023-03-25 | [セシル・ブリュワー階段, イギリス ロンドン (© Yiran An/Getty Images)](https://global.bing.com/th?id=OHR.CecilBrewerStaircase_JA-JP5436692403_UHD.jpg) 
