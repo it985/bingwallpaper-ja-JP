@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-01 | [ブロモ山, インドネシア ジャワ島東部 (© Bento Fotography/Getty Images)](https://global.bing.com/th?id=OHR.JavaBromo_JA-JP8216089017_UHD.jpg) 
+
 2023-03-31 | [シュタイアー川, オーストリア オーバーエスターライヒ州 (© guenterguni/Getty Images)](https://global.bing.com/th?id=OHR.SteyrRiver_JA-JP7431516519_UHD.jpg) 
 
 2023-03-30 | [クジャク (© Sarayut Thaneerat/Getty Images)](https://global.bing.com/th?id=OHR.PeacockFeathers_JA-JP8020254478_UHD.jpg) 
