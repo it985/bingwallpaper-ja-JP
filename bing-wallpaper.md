@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-04 | [ローマ橋, スペイン コルドバ (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.RomanBridge_JA-JP9918563231_UHD.jpg) 
+
 2023-04-03 | [プウホヌア・オ・ホナウナウ国立歴史公園, ハワイ島 (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.HonaunauNP_JA-JP9662252243_UHD.jpg) 
 
 2023-04-02 | [クーサモの春, フィンランド (© Markus Varesvuo/Minden Pictures)](https://global.bing.com/th?id=OHR.BlackGrouseLekking_JA-JP9243300706_UHD.jpg) 
