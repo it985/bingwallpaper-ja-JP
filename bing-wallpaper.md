@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-08 | [池に咲く睡蓮 (© Masahiro Noguchi/GettyImages)](https://global.bing.com/th?id=OHR.BuddhasBirthday2023_JA-JP8498198391_UHD.jpg) 
+
 2023-04-07 | [赤ちゃんヨーロッパビーバー, フィンランド (© Danny Green/Minden Pictures)](https://global.bing.com/th?id=OHR.KitsAspen_JA-JP7926825905_UHD.jpg) 
 
 2023-04-06 | [姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CastleDay2023_JA-JP9603602149_UHD.jpg) 
