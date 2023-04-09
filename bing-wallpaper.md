@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-10 | [アンボセリ国立公園, ケニア (© Diana Robinson/Getty Images)](https://global.bing.com/th?id=OHR.ElephantTwins_JA-JP7928184378_UHD.jpg) 
+
 2023-04-09 | [華やかなイースターエッグ (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_JA-JP7482896378_UHD.jpg) 
 
 2023-04-08 | [池に咲く睡蓮 (© Masahiro Noguchi/GettyImages)](https://global.bing.com/th?id=OHR.BuddhasBirthday2023_JA-JP8498198391_UHD.jpg) 
