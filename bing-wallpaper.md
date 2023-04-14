@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-15 | [ギザの大ピラミッド, エジプト (© Sima Diab/Getty Images)](https://global.bing.com/th?id=OHR.LorenzoQuinn_JA-JP9163973755_UHD.jpg) 
+
 2023-04-14 | [ジャイアンツ・コーズウェー, イギリス 北アイルランド (© Dieter Meyrl/Getty Images)](https://global.bing.com/th?id=OHR.NIrelandGiants_JA-JP8922584864_UHD.jpg) 
 
 2023-04-13 | [羊山公園, 埼玉県 (© Takashi Images/Shutterstock)](https://global.bing.com/th?id=OHR.PhloxSubulata_JA-JP1465330739_UHD.jpg) 
