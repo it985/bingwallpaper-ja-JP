@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-17 | [キュー王立植物園のアートインスタレーション, ロンドン (© Guy Bell/Alamy Live News)](https://global.bing.com/th?id=OHR.OneThousandSprings_JA-JP1763626883_UHD.jpg) 
+
 2023-04-16 | [アデレードの空に舞うカイト, オーストラリア (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_JA-JP0702244220_UHD.jpg) 
 
 2023-04-15 | [ギザの大ピラミッド, エジプト (© Sima Diab/Getty Images)](https://global.bing.com/th?id=OHR.LorenzoQuinn_JA-JP9163973755_UHD.jpg) 
