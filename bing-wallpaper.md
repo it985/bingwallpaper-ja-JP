@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-18 | [マチュ・ピチュ, ペルー (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_JA-JP8515266405_UHD.jpg) 
+
 2023-04-17 | [キュー王立植物園のアートインスタレーション, ロンドン (© Guy Bell/Alamy Live News)](https://global.bing.com/th?id=OHR.OneThousandSprings_JA-JP1763626883_UHD.jpg) 
 
 2023-04-16 | [アデレードの空に舞うカイト, オーストラリア (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_JA-JP0702244220_UHD.jpg) 
