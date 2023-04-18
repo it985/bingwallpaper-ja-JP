@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-19 | [阿里山, 台湾 (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_JA-JP8162219284_UHD.jpg) 
+
 2023-04-18 | [マチュ・ピチュ, ペルー (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_JA-JP8515266405_UHD.jpg) 
 
 2023-04-17 | [キュー王立植物園のアートインスタレーション, ロンドン (© Guy Bell/Alamy Live News)](https://global.bing.com/th?id=OHR.OneThousandSprings_JA-JP1763626883_UHD.jpg) 
