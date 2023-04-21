@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-22 | [チャネル諸島国立公園に住むシマハイイロギツネ, 米国 カリフォルニア州 (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_JA-JP5721458397_UHD.jpg) 
+
 2023-04-21 | [プローチダ, イタリア カンパニア州 (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_JA-JP5458628565_UHD.jpg) 
 
 2023-04-20 | [南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)](https://global.bing.com/th?id=OHR.JapanKokuu2023_JA-JP8883775456_UHD.jpg) 
