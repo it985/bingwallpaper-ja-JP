@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-24 | [マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)](https://global.bing.com/th?id=OHR.ThreeWildebeest_JA-JP2908704390_UHD.jpg) 
+
 2023-04-23 | [シュトゥットガルト公共図書館, ドイツ (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_JA-JP1364154542_UHD.jpg) 
 
 2023-04-22 | [チャネル諸島国立公園に住むシマハイイロギツネ, 米国 カリフォルニア州 (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_JA-JP5721458397_UHD.jpg) 
