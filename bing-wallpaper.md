@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-25 | [アデリーペンギン, 南極大陸 (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_JA-JP7318498181_UHD.jpg) 
+
 2023-04-24 | [マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)](https://global.bing.com/th?id=OHR.ThreeWildebeest_JA-JP2908704390_UHD.jpg) 
 
 2023-04-23 | [シュトゥットガルト公共図書館, ドイツ (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_JA-JP1364154542_UHD.jpg) 
