@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-26 | [アメリカワシミミズク  (© Michael Morse/Getty Images)](https://global.bing.com/th?id=OHR.GHOAudubonDay_JA-JP8134912758_UHD.jpg) 
+
 2023-04-25 | [アデリーペンギン, 南極大陸 (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_JA-JP7318498181_UHD.jpg) 
 
 2023-04-24 | [マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)](https://global.bing.com/th?id=OHR.ThreeWildebeest_JA-JP2908704390_UHD.jpg) 
