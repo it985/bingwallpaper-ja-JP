@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-27 | [サウス・パドレ島, 米国 テキサス州 (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.SouthPadre_JA-JP8678119712_UHD.jpg) 
+
 2023-04-26 | [アメリカワシミミズク  (© Michael Morse/Getty Images)](https://global.bing.com/th?id=OHR.GHOAudubonDay_JA-JP8134912758_UHD.jpg) 
 
 2023-04-25 | [アデリーペンギン, 南極大陸 (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_JA-JP7318498181_UHD.jpg) 
