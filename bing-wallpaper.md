@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-30 | [プリザベーション・ホール, 米国 ルイジアナ州 (© Cosmo Condina North America/Alamy)](https://global.bing.com/th?id=OHR.ExteriorPreservationHall_JA-JP1094294616_UHD.jpg) 
+
 2023-04-29 | [ジョシュア・ツリー国立公園, 米国 カリフォルニア州 (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_JA-JP0040708702_UHD.jpg) 
 
 2023-04-28 | [ヨセミテ国立公園にあるマリポサグローブ, 米国 カリフォルニア州 (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_JA-JP1724100743_UHD.jpg) 
