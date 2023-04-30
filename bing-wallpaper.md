@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-01 | [シルブレッタアルプスと湖, スイス (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_JA-JP1346156954_UHD.jpg) 
+
 2023-04-30 | [プリザベーション・ホール, 米国 ルイジアナ州 (© Cosmo Condina North America/Alamy)](https://global.bing.com/th?id=OHR.ExteriorPreservationHall_JA-JP1094294616_UHD.jpg) 
 
 2023-04-29 | [ジョシュア・ツリー国立公園, 米国 カリフォルニア州 (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_JA-JP0040708702_UHD.jpg) 
