@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-02 | [円形茶畑, 京都府 相楽郡 (© Tuul and Bruno Morandi/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Hachijyuhachi2023_JA-JP1581523255_UHD.jpg) 
+
 2023-05-01 | [シルブレッタアルプスと湖, スイス (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_JA-JP1346156954_UHD.jpg) 
 
 2023-04-30 | [プリザベーション・ホール, 米国 ルイジアナ州 (© Cosmo Condina North America/Alamy)](https://global.bing.com/th?id=OHR.ExteriorPreservationHall_JA-JP1094294616_UHD.jpg) 
