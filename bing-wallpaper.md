@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-04 | [ティカル国立公園にあるマヤ遺跡, グアテマラ (© THP Creative/Getty Images)](https://global.bing.com/th?id=OHR.RebelBase_JA-JP2351113050_UHD.jpg) 
+
 2023-05-03 | [国会議事堂, 東京都 千代田区 (© Sean Pavone/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Constitution2023_JA-JP2079590135_UHD.jpg) 
 
 2023-05-02 | [円形茶畑, 京都府 相楽郡 (© Tuul and Bruno Morandi/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Hachijyuhachi2023_JA-JP1581523255_UHD.jpg) 
