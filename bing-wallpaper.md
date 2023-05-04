@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-05 | [風に泳ぐ鯉のぼり (© rai/Adobe Stock)](https://global.bing.com/th?id=OHR.ChildDay2023_JA-JP5088360063_UHD.jpg) 
+
 2023-05-04 | [ティカル国立公園にあるマヤ遺跡, グアテマラ (© THP Creative/Getty Images)](https://global.bing.com/th?id=OHR.RebelBase_JA-JP2351113050_UHD.jpg) 
 
 2023-05-03 | [国会議事堂, 東京都 千代田区 (© Sean Pavone/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Constitution2023_JA-JP2079590135_UHD.jpg) 
