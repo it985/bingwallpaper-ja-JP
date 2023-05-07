@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-08 | [アーチーズ国立公園, 米国 ユタ州 (© Mark Brodkin Photography/Getty Images)](https://global.bing.com/th?id=OHR.TheChaps_JA-JP6283869336_UHD.jpg) 
+
 2023-05-07 | [ランディ島, イギリス イングランド (© Henley Spiers/Minden Pictures)](https://global.bing.com/th?id=OHR.SealLaughing_JA-JP4326487726_UHD.jpg) 
 
 2023-05-06 | [黄梅山, 韓国 (© Stock for you/Shutterstock)](https://global.bing.com/th?id=OHR.HwangmaesanAzaleas_JA-JP5660353966_UHD.jpg) 
