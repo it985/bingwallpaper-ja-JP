@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-13 | [ソニーボノ・ソルトン湖国立野生生物保護区, 米国 カリフォルニア州 (© David McNew/Getty Images)](https://global.bing.com/th?id=OHR.SonnyBonoPelicans_JA-JP8385085647_UHD.jpg) 
+
 2023-05-12 | [野生のルピナス (© silverjohn/Getty Images Plus)](https://global.bing.com/th?id=OHR.WildLupine_JA-JP8182170206_UHD.jpg) 
 
 2023-05-11 | [ヘニングスヴァール村スタジアム, ノルウェー, ヌールラン県 (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.FootballField_JA-JP7635549067_UHD.jpg) 
