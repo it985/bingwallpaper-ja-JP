@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-14 | [オジロジカの母子, 米国 モンタナ州 (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.OdocoileusVirginianus_JA-JP8573295409_UHD.jpg) 
+
 2023-05-13 | [ソニーボノ・ソルトン湖国立野生生物保護区, 米国 カリフォルニア州 (© David McNew/Getty Images)](https://global.bing.com/th?id=OHR.SonnyBonoPelicans_JA-JP8385085647_UHD.jpg) 
 
 2023-05-12 | [野生のルピナス (© silverjohn/Getty Images Plus)](https://global.bing.com/th?id=OHR.WildLupine_JA-JP8182170206_UHD.jpg) 
