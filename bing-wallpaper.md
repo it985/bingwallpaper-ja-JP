@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-17 | [ナチュラル・ブリッジ・ステート・ビーチ, 米国 カリフォルニア州 (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CormorantBridge_JA-JP9437791090_UHD.jpg) 
+
 2023-05-16 | [オケフェノキー国立野生動物保護区, 米国 ジョージア州 (© Brad Beck/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmericanWetlands_JA-JP9114182507_UHD.jpg) 
 
 2023-05-15 | [葵祭, 京都 下鴨神社 (© The Asahi Shimbun/Getty Images)](https://global.bing.com/th?id=OHR.AoiMatsuri2023_JA-JP8770594775_UHD.jpg) 
