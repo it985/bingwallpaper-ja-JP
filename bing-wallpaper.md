@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-19 | [ウェイカンバス国立公園, インドネシア (© Cyril Ruoso/Minden Pictures)](https://global.bing.com/th?id=OHR.SumatranRhino_JA-JP0144447499_UHD.jpg) 
+
 2023-05-18 | [ソウマヤ美術館プラザカルソ館, メキシコ メキシコシティ (© Juan Romero/Alamy)](https://global.bing.com/th?id=OHR.MuseoSoumaya_JA-JP0165923558_UHD.jpg) 
 
 2023-05-17 | [ナチュラル・ブリッジ・ステート・ビーチ, 米国 カリフォルニア州 (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CormorantBridge_JA-JP9437791090_UHD.jpg) 
