@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-20 | [セイヨウミツバチ, イギリス シェフィールド (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_JA-JP0384795622_UHD.jpg) 
+
 2023-05-19 | [ウェイカンバス国立公園, インドネシア (© Cyril Ruoso/Minden Pictures)](https://global.bing.com/th?id=OHR.SumatranRhino_JA-JP0144447499_UHD.jpg) 
 
 2023-05-18 | [ソウマヤ美術館プラザカルソ館, メキシコ メキシコシティ (© Juan Romero/Alamy)](https://global.bing.com/th?id=OHR.MuseoSoumaya_JA-JP0165923558_UHD.jpg) 
