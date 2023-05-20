@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-21 | [露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.wheat2023_JA-JP0808192742_UHD.jpg) 
+
 2023-05-20 | [セイヨウミツバチ, イギリス シェフィールド (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_JA-JP0384795622_UHD.jpg) 
 
 2023-05-19 | [ウェイカンバス国立公園, インドネシア (© Cyril Ruoso/Minden Pictures)](https://global.bing.com/th?id=OHR.SumatranRhino_JA-JP0144447499_UHD.jpg) 
