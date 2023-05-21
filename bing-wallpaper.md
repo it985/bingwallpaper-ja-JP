@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-22 | [アレナル火山, コスタリカ (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_JA-JP1077467676_UHD.jpg) 
+
 2023-05-21 | [露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.wheat2023_JA-JP0808192742_UHD.jpg) 
 
 2023-05-20 | [セイヨウミツバチ, イギリス シェフィールド (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_JA-JP0384795622_UHD.jpg) 
