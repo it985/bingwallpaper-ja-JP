@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-23 | [ニシキハコガメ (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.WesternBoxTurtle_JA-JP1310734552_UHD.jpg) 
+
 2023-05-22 | [アレナル火山, コスタリカ (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_JA-JP1077467676_UHD.jpg) 
 
 2023-05-21 | [露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.wheat2023_JA-JP0808192742_UHD.jpg) 
