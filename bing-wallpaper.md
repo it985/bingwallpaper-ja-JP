@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-24 | [コルフ島の旧要塞, ギリシャ (© Netfalls Remy Musser/Shutterstock)](https://global.bing.com/th?id=OHR.OldFortress_JA-JP1697393031_UHD.jpg) 
+
 2023-05-23 | [ニシキハコガメ (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.WesternBoxTurtle_JA-JP1310734552_UHD.jpg) 
 
 2023-05-22 | [アレナル火山, コスタリカ (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_JA-JP1077467676_UHD.jpg) 
