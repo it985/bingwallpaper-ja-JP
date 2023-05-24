@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-25 | [フェロー諸島のサクスン村, デンマーク (© miroslav_1/Getty Images)](https://global.bing.com/th?id=OHR.SaksunFaroe_JA-JP1994915437_UHD.jpg) 
+
 2023-05-24 | [コルフ島の旧要塞, ギリシャ (© Netfalls Remy Musser/Shutterstock)](https://global.bing.com/th?id=OHR.OldFortress_JA-JP1697393031_UHD.jpg) 
 
 2023-05-23 | [ニシキハコガメ (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.WesternBoxTurtle_JA-JP1310734552_UHD.jpg) 
