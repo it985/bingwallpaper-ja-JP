@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-27 | [クイバー・ツリー, ナミビア (© Fotofeeling/DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.AloeDichotomum_JA-JP2481369181_UHD.jpg) 
+
 2023-05-26 | [ワット・シー・サワイ, タイ (© Casper1774 Studio/Shutterstock)](https://global.bing.com/th?id=OHR.WatSriSawai_JA-JP2219268493_UHD.jpg) 
 
 2023-05-25 | [フェロー諸島のサクスン村, デンマーク (© miroslav_1/Getty Images)](https://global.bing.com/th?id=OHR.SaksunFaroe_JA-JP1994915437_UHD.jpg) 
