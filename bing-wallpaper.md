@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-28 | [テガララン・ライステラス, インドネシア (© Cavan Images/Adobe Stock)](https://global.bing.com/th?id=OHR.TegallalangTerrace_JA-JP2685499345_UHD.jpg) 
+
 2023-05-27 | [クイバー・ツリー, ナミビア (© Fotofeeling/DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.AloeDichotomum_JA-JP2481369181_UHD.jpg) 
 
 2023-05-26 | [ワット・シー・サワイ, タイ (© Casper1774 Studio/Shutterstock)](https://global.bing.com/th?id=OHR.WatSriSawai_JA-JP2219268493_UHD.jpg) 
