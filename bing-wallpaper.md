@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-30 | [マリエタス諸島のプラヤ・デル・アモール, メキシコ (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_JA-JP3236921669_UHD.jpg) 
+
 2023-05-29 | [セーヌ川, フランス パリ (© StockByM/Getty Images)](https://global.bing.com/th?id=OHR.PontdArcole_JA-JP2896354577_UHD.jpg) 
 
 2023-05-28 | [テガララン・ライステラス, インドネシア (© Cavan Images/Adobe Stock)](https://global.bing.com/th?id=OHR.TegallalangTerrace_JA-JP2685499345_UHD.jpg) 
