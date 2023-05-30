@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-31 | [ラッコの赤ちゃん, 米国 アラスカ州 (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_JA-JP3462049774_UHD.jpg) 
+
 2023-05-30 | [マリエタス諸島のプラヤ・デル・アモール, メキシコ (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_JA-JP3236921669_UHD.jpg) 
 
 2023-05-29 | [セーヌ川, フランス パリ (© StockByM/Getty Images)](https://global.bing.com/th?id=OHR.PontdArcole_JA-JP2896354577_UHD.jpg) 
