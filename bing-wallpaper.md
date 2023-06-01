@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-02 | [砂丘にたたずむオリックス, ナミビア (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_JA-JP7883114248_UHD.jpg) 
+
 2023-06-01 | [グレートバリアリーフ, オーストラリア (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_JA-JP3893578762_UHD.jpg) 
 
 2023-05-31 | [ラッコの赤ちゃん, 米国 アラスカ州 (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_JA-JP3462049774_UHD.jpg) 
