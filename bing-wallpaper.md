@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-03 | [グランド・キャニオン国立公園, 米国 アリゾナ州 (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_JA-JP4245325462_UHD.jpg) 
+
 2023-06-02 | [砂丘にたたずむオリックス, ナミビア (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_JA-JP7883114248_UHD.jpg) 
 
 2023-06-01 | [グレートバリアリーフ, オーストラリア (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_JA-JP3893578762_UHD.jpg) 
