@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-04 | [ワイアナパナパ州立公園, 米国 ハワイ州 (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.MauiBeach_JA-JP8405948672_UHD.jpg) 
+
 2023-06-03 | [グランド・キャニオン国立公園, 米国 アリゾナ州 (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_JA-JP4245325462_UHD.jpg) 
 
 2023-06-02 | [砂丘にたたずむオリックス, ナミビア (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_JA-JP7883114248_UHD.jpg) 
