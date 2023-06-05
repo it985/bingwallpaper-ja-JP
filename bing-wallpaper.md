@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-06 | [森の中で輝く蛍たち (© Trevor Williams/Getty images)](https://global.bing.com/th?id=OHR.Mangzhong2023_JA-JP8970616377_UHD.jpg) 
+
 2023-06-05 | [プラスチックごみで構成されたインスタレーション (© Michael Siluk/UCG/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.PlasticParrotfish_JA-JP8663724178_UHD.jpg) 
 
 2023-06-04 | [ワイアナパナパ州立公園, 米国 ハワイ州 (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.MauiBeach_JA-JP8405948672_UHD.jpg) 
