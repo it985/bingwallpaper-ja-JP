@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-07 | [チャコ文化国立歴史公園, 米国 ニューメキシコ州 (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ChacoCulture_JA-JP9246689243_UHD.jpg) 
+
 2023-06-06 | [森の中で輝く蛍たち (© Trevor Williams/Getty images)](https://global.bing.com/th?id=OHR.Mangzhong2023_JA-JP8970616377_UHD.jpg) 
 
 2023-06-05 | [プラスチックごみで構成されたインスタレーション (© Michael Siluk/UCG/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.PlasticParrotfish_JA-JP8663724178_UHD.jpg) 
