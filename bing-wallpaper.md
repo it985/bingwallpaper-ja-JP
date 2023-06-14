@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-15 | [グレート・スモーキー山脈国立公園の森に舞う蛍, 米国 テネシー州 (© Floris Van Bruegel/Minden Pictures)](https://global.bing.com/th?id=OHR.SmokyFireflies_JA-JP1430941774_UHD.jpg) 
+
 2023-06-14 | [クルーガー国立公園のオニアオサギ, 南アフリカ共和国 (© Johan Swanepoel/Alamy)](https://global.bing.com/th?id=OHR.GoliathHeron_JA-JP7916095808_UHD.jpg) 
 
 2023-06-13 | [オケフェノキー湿原の遊歩道, 米国 ジョージア州 (© Emmer Photo/Alamy)](https://global.bing.com/th?id=OHR.OkefenokeeSwamp_JA-JP0829275517_UHD.jpg) 
