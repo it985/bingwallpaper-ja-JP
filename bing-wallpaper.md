@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-22 | [アマゾン熱帯雨林, ペルー (© Rhett Ayers Butler/Getty Images)](https://global.bing.com/th?id=OHR.PeruAmazon_JA-JP3970237476_UHD.jpg) 
+
 2023-06-21 | [奥入瀬渓流, 青森県 (© yspbqh14/Shutterstock)](https://global.bing.com/th?id=OHR.Summersolstice2023_JA-JP3731281630_UHD.jpg) 
 
 2023-06-20 | [トンガス国立森林公園のハクトウワシ, 米国 アラスカ州 (© Jaynes Gallery/Shutterstock)](https://global.bing.com/th?id=OHR.EagleTree_JA-JP2152046616_UHD.jpg) 
