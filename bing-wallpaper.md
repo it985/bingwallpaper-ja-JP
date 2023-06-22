@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-23 | [リアトリスにとまるオオカバマダラ (© bookguy/Getty Images)](https://global.bing.com/th?id=OHR.PollinatorMonarch_JA-JP4171117800_UHD.jpg) 
+
 2023-06-22 | [アマゾン熱帯雨林, ペルー (© Rhett Ayers Butler/Getty Images)](https://global.bing.com/th?id=OHR.PeruAmazon_JA-JP3970237476_UHD.jpg) 
 
 2023-06-21 | [奥入瀬渓流, 青森県 (© yspbqh14/Shutterstock)](https://global.bing.com/th?id=OHR.Summersolstice2023_JA-JP3731281630_UHD.jpg) 
