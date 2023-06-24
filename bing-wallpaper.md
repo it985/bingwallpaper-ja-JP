@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-25 | [エル・カズネ, ヨルダン ペトラ (© WitthayaP/Shutterstock)](https://global.bing.com/th?id=OHR.PetraTreasury_JA-JP4638552113_UHD.jpg) 
+
 2023-06-24 | [ニャフー湾, ベトナム ニャチャン (© Thang Tat Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.NhaTrang_JA-JP4366541911_UHD.jpg) 
 
 2023-06-23 | [リアトリスにとまるオオカバマダラ (© bookguy/Getty Images)](https://global.bing.com/th?id=OHR.PollinatorMonarch_JA-JP4171117800_UHD.jpg) 
