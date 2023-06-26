@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-27 | [セドナ, 米国 アリゾナ州 (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_JA-JP5059075419_UHD.jpg) 
+
 2023-06-26 | [ロワール渓谷内のヴィランドリー城, フランス ロワール県 (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_JA-JP4858825894_UHD.jpg) 
 
 2023-06-25 | [エル・カズネ, ヨルダン ペトラ (© WitthayaP/Shutterstock)](https://global.bing.com/th?id=OHR.PetraTreasury_JA-JP4638552113_UHD.jpg) 
