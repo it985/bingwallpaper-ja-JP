@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-02 | [フェールウェメール送水路, オランダ (© Frolova_Elena/Shutterstock)](https://global.bing.com/th?id=OHR.HalfwayBoats_JA-JP0449681577_UHD.jpg) 
+
 2023-07-01 | [ポン・デュ・ガールを横断するサイクリストたち, フランス (© Gonzalo Fuentes/Getty Images)](https://global.bing.com/th?id=OHR.PelotonPont_JA-JP8854375139_UHD.jpg) 
 
 2023-06-30 | [レイク・クラーク国立公園, 米国 アラスカ州 (© Carlos Carreno/Getty Images)](https://global.bing.com/th?id=OHR.ClamBears_JA-JP8912125986_UHD.jpg) 
