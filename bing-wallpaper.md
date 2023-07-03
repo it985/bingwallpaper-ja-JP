@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-04 | [サマセットのラベンダー畑, イギリス  (© Doug Chinnery/Getty Images)](https://global.bing.com/th?id=OHR.SomersetLavender_JA-JP1412605129_UHD.jpg) 
+
 2023-07-03 | [トゥアモトゥ諸島にあるカウエヒ環礁, フランス領ポリネシア (© WaterFrame/Alamy)](https://global.bing.com/th?id=OHR.Atoll_JA-JP8732763114_UHD.jpg) 
 
 2023-07-02 | [フェールウェメール送水路, オランダ (© Frolova_Elena/Shutterstock)](https://global.bing.com/th?id=OHR.HalfwayBoats_JA-JP0449681577_UHD.jpg) 
