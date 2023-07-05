@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-06 | [優しいキスをするイワトビペンギン, イギリス (© Tony Beck/Getty Images)](https://global.bing.com/th?id=OHR.KissingPenguins_JA-JP2236836465_UHD.jpg) 
+
 2023-07-05 | [コルフ島のポルトティモニビーチ, ギリシャ (© nantonov/Getty Images)](https://global.bing.com/th?id=OHR.CorfuBeach_JA-JP8524757338_UHD.jpg) 
 
 2023-07-04 | [サマセットのラベンダー畑, イギリス  (© Doug Chinnery/Getty Images)](https://global.bing.com/th?id=OHR.SomersetLavender_JA-JP1412605129_UHD.jpg) 
