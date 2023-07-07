@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-08 | [ミルドレッド B. クーパー メモリアル チャペル, 米国 アーカンソー州 (© Eddie Brady/Getty Images)](https://global.bing.com/th?id=OHR.CooperChapel_JA-JP8299410421_UHD.jpg) 
+
 2023-07-07 | [燕岳の星空, 長野県 (© Nuttapoom Amornpashara/Getty Images)](https://global.bing.com/th?id=OHR.Tanabata2023_JA-JP8370002660_UHD.jpg) 
 
 2023-07-06 | [優しいキスをするイワトビペンギン, イギリス (© Tony Beck/Getty Images)](https://global.bing.com/th?id=OHR.KissingPenguins_JA-JP2236836465_UHD.jpg) 
