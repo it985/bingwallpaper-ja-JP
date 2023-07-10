@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-11 | [香港特別行政区, 中国 (© leungchopan/Getty Images)](https://global.bing.com/th?id=OHR.WorldPopDay_JA-JP7874033348_UHD.jpg) 
+
 2023-07-10 | [浅草寺のほおずき市, 東京 (© y-studio/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.HozukiIchi2023_JA-JP7923753370_UHD.jpg) 
 
 2023-07-09 | [クレフ近郊のモーゼル川, ドイツ ラインラント＝プファルツ州 (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.MoselleRiver_JA-JP8238195792_UHD.jpg) 
