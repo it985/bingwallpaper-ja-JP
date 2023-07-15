@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-16 | [キャッツキル山地, 米国 ニューヨーク州 (© GummyBone/Getty Images)](https://global.bing.com/th?id=OHR.BearHoleBrook_JA-JP7059331759_UHD.jpg) 
+
 2023-07-15 | [カステルメッツァーノ, イタリア (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.CastelmazzanoSunrise_JA-JP6748977928_UHD.jpg) 
 
 2023-07-14 | [魚群の中に乱舞しているツマグロ, モルディブ (© Filippo Bacci/Getty Images)](https://global.bing.com/th?id=OHR.BlacktipSharks_JA-JP6352446925_UHD.jpg) 
