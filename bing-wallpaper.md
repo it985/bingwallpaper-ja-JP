@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-19 | [月牙泉, 中国 甘粛省 (© R7 Photo/Shutterstock)](https://global.bing.com/th?id=OHR.CrescentLake_JA-JP8452869606_UHD.jpg) 
+
 2023-07-18 | [カオヤイ国立公園, タイ (© kajornyot wildlife photography/Shutterstock)](https://global.bing.com/th?id=OHR.BucerosBicornis_JA-JP4956922577_UHD.jpg) 
 
 2023-07-17 | [座間味島のウミガメ, 沖縄 (© petesphotography/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.MarineDay2023_JA-JP7484364460_UHD.jpg) 
