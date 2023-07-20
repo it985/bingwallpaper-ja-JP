@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-21 | [大西洋道路のストルセイスンデット橋, ノルウェー ムーレ・オ・ロムスダール県 (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_JA-JP8975329344_UHD.jpg) 
+
 2023-07-20 | [NASA のオリオン宇宙船から見た月 (© NASA)](https://global.bing.com/th?id=OHR.MoonDayArtemis_JA-JP8694388509_UHD.jpg) 
 
 2023-07-19 | [月牙泉, 中国 甘粛省 (© R7 Photo/Shutterstock)](https://global.bing.com/th?id=OHR.CrescentLake_JA-JP8452869606_UHD.jpg) 
