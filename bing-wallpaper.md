@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-22 | [クラフオウター城, アイルランド キャバン県 (© 4H4 PH/Shutterstock)](https://global.bing.com/th?id=OHR.CavanCastle_JA-JP9264302240_UHD.jpg) 
+
 2023-07-21 | [大西洋道路のストルセイスンデット橋, ノルウェー ムーレ・オ・ロムスダール県 (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_JA-JP8975329344_UHD.jpg) 
 
 2023-07-20 | [NASA のオリオン宇宙船から見た月 (© NASA)](https://global.bing.com/th?id=OHR.MoonDayArtemis_JA-JP8694388509_UHD.jpg) 
