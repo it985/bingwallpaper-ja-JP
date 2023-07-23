@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-24 | [タランギレ国立公園のシマウマたち, タンザニア (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_JA-JP0170219934_UHD.jpg) 
+
 2023-07-23 | [エディンバラ茶畑, スリランカ ヌワラ・エリヤ (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_JA-JP9818718902_UHD.jpg) 
 
 2023-07-22 | [クラフオウター城, アイルランド キャバン県 (© 4H4 PH/Shutterstock)](https://global.bing.com/th?id=OHR.CavanCastle_JA-JP9264302240_UHD.jpg) 
