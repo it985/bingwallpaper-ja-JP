@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-25 | [サラダ・デ・トレビエハ湖, スペイン アリカンテ県 (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.LasLagunas_JA-JP0416165627_UHD.jpg) 
+
 2023-07-24 | [タランギレ国立公園のシマウマたち, タンザニア (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_JA-JP0170219934_UHD.jpg) 
 
 2023-07-23 | [エディンバラ茶畑, スリランカ ヌワラ・エリヤ (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_JA-JP9818718902_UHD.jpg) 
