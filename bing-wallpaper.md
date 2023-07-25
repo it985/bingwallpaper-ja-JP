@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-26 | [ジュベイル・マングローブ・パーク, アラブ首長国連邦 アブダビ市 (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.MangrovePark_JA-JP0701304478_UHD.jpg) 
+
 2023-07-25 | [サラダ・デ・トレビエハ湖, スペイン アリカンテ県 (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.LasLagunas_JA-JP0416165627_UHD.jpg) 
 
 2023-07-24 | [タランギレ国立公園のシマウマたち, タンザニア (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_JA-JP0170219934_UHD.jpg) 
