@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-28 | [サンブラス諸島, パナマ (© bgremler/Shutterstock)](https://global.bing.com/th?id=OHR.SanBlasIslands_JA-JP8202998068_UHD.jpg) 
+
 2023-07-27 | [カルーゼル凱旋門とルーヴル・ピラミッド, フランス パリ (© Jon Hicks/Getty Images)](https://global.bing.com/th?id=OHR.ParisLouvre_JA-JP0935023821_UHD.jpg) 
 
 2023-07-26 | [ジュベイル・マングローブ・パーク, アラブ首長国連邦 アブダビ市 (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.MangrovePark_JA-JP0701304478_UHD.jpg) 
