@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-29 | [ランタンボール国立公園で水浴びするベンガルトラ, インド (© Andy Rouse/Minden Pictures)](https://global.bing.com/th?id=OHR.TigerIndia_JA-JP8434138959_UHD.jpg) 
+
 2023-07-28 | [サンブラス諸島, パナマ (© bgremler/Shutterstock)](https://global.bing.com/th?id=OHR.SanBlasIslands_JA-JP8202998068_UHD.jpg) 
 
 2023-07-27 | [カルーゼル凱旋門とルーヴル・ピラミッド, フランス パリ (© Jon Hicks/Getty Images)](https://global.bing.com/th?id=OHR.ParisLouvre_JA-JP0935023821_UHD.jpg) 
