@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-31 | [ホッキングヒルズ州立公園にある洞窟, 米国 オハイオ州 (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.RockHouse_JA-JP8879635056_UHD.jpg) 
+
 2023-07-30 | [パルース丘陵, 米国 ワシントン州 (© EJ-J/Getty Images)](https://global.bing.com/th?id=OHR.PalouseHills_JA-JP8664881867_UHD.jpg) 
 
 2023-07-29 | [ランタンボール国立公園で水浴びするベンガルトラ, インド (© Andy Rouse/Minden Pictures)](https://global.bing.com/th?id=OHR.TigerIndia_JA-JP8434138959_UHD.jpg) 
