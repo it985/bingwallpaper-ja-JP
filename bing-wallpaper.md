@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-02 | [キャピトルリーフ国立公園, 米国 ユタ州 (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CapitolButte_JA-JP9625919986_UHD.jpg) 
+
 2023-08-01 | [絢爛華麗な弘前ねぷた, 青森県 弘前市 (© David Parker/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Neputa2023_JA-JP9406912677_UHD.jpg) 
 
 2023-07-31 | [ホッキングヒルズ州立公園にある洞窟, 米国 オハイオ州 (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.RockHouse_JA-JP8879635056_UHD.jpg) 
