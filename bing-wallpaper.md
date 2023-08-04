@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-05 | [ニシツノメドリ, アイスランド (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_JA-JP0342843453_UHD.jpg) 
+
 2023-08-04 | [鏡池, 長野県 長野市 (© Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_JA-JP0131888809_UHD.jpg) 
 
 2023-08-03 | [ゼレンチ自然保護区, スロベニア (© Andrey Danilovich/Getty Images)](https://global.bing.com/th?id=OHR.ZelenciSprings_JA-JP9838460197_UHD.jpg) 
