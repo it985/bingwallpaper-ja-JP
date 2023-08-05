@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-06 | [原爆ドーム前元安川のとうろう流し, 広島県 広島市 (© Anadolu Agency/Getty Images)](https://global.bing.com/th?id=OHR.HiroshimaPeace2023_JA-JP0775364620_UHD.jpg) 
+
 2023-08-05 | [ニシツノメドリ, アイスランド (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_JA-JP0342843453_UHD.jpg) 
 
 2023-08-04 | [鏡池, 長野県 長野市 (© Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_JA-JP0131888809_UHD.jpg) 
