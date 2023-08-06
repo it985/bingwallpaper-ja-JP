@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-07 | [ボディー・アイランド灯台, 米国 ノースカロライナ州 (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_JA-JP1160561099_UHD.jpg) 
+
 2023-08-06 | [原爆ドーム前元安川のとうろう流し, 広島県 広島市 (© Anadolu Agency/Getty Images)](https://global.bing.com/th?id=OHR.HiroshimaPeace2023_JA-JP0775364620_UHD.jpg) 
 
 2023-08-05 | [ニシツノメドリ, アイスランド (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_JA-JP0342843453_UHD.jpg) 
