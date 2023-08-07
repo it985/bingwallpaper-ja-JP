@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-08 | [「無限」の高速道路, 台湾 台北市 (© Tavarius/Shutterstock)](https://global.bing.com/th?id=OHR.InfinityTaipei_JA-JP1456482125_UHD.jpg) 
+
 2023-08-07 | [ボディー・アイランド灯台, 米国 ノースカロライナ州 (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_JA-JP1160561099_UHD.jpg) 
 
 2023-08-06 | [原爆ドーム前元安川のとうろう流し, 広島県 広島市 (© Anadolu Agency/Getty Images)](https://global.bing.com/th?id=OHR.HiroshimaPeace2023_JA-JP0775364620_UHD.jpg) 
