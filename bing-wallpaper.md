@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-09 | [ティウィ人の芸術作品, オーストラリア ウルミヤンガ (© Robert Wyatt/Alamy)](https://global.bing.com/th?id=OHR.BathurstArt_JA-JP1737755187_UHD.jpg) 
+
 2023-08-08 | [「無限」の高速道路, 台湾 台北市 (© Tavarius/Shutterstock)](https://global.bing.com/th?id=OHR.InfinityTaipei_JA-JP1456482125_UHD.jpg) 
 
 2023-08-07 | [ボディー・アイランド灯台, 米国 ノースカロライナ州 (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_JA-JP1160561099_UHD.jpg) 
