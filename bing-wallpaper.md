@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-10 | [マサイマラ国立保護区のライオン, ケニア (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WorldLionDay_JA-JP2089324096_UHD.jpg) 
+
 2023-08-09 | [ティウィ人の芸術作品, オーストラリア ウルミヤンガ (© Robert Wyatt/Alamy)](https://global.bing.com/th?id=OHR.BathurstArt_JA-JP1737755187_UHD.jpg) 
 
 2023-08-08 | [「無限」の高速道路, 台湾 台北市 (© Tavarius/Shutterstock)](https://global.bing.com/th?id=OHR.InfinityTaipei_JA-JP1456482125_UHD.jpg) 
