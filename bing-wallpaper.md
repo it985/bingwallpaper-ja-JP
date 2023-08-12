@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-13 | [コットンウッド・キャニオン州立公園, 米国 オレゴン州 (© Joshua Meador/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PerseidsOregon_JA-JP1202556459_UHD.jpg) 
+
 2023-08-12 | [アンボセリ国立公園のゾウ家族, ケニア (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.ThreeElephants_JA-JP2478000668_UHD.jpg) 
 
 2023-08-11 | [夏の立山, 富山県 (© yasuki/Adobe Stock)](https://global.bing.com/th?id=OHR.MountainDay2023_JA-JP1098960867_UHD.jpg) 
