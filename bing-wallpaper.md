@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-15 | [4 月 9 日広場, イタリア シチリア自治州 (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_JA-JP1602272680_UHD.jpg) 
+
 2023-08-14 | [セブンマイル・ブリッジ, 米国 フロリダ州 (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_JA-JP1406003340_UHD.jpg) 
 
 2023-08-13 | [コットンウッド・キャニオン州立公園, 米国 オレゴン州 (© Joshua Meador/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PerseidsOregon_JA-JP1202556459_UHD.jpg) 
