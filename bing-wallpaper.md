@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-16 | [東山・大文字山の送り火, 京都 (© gyro/Getty Images)](https://global.bing.com/th?id=OHR.GozanOkuribi2023_JA-JP6571429669_UHD.jpg) 
+
 2023-08-15 | [4 月 9 日広場, イタリア シチリア自治州 (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_JA-JP1602272680_UHD.jpg) 
 
 2023-08-14 | [セブンマイル・ブリッジ, 米国 フロリダ州 (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_JA-JP1406003340_UHD.jpg) 
