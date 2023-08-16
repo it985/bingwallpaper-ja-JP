@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-17 | [グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)](https://global.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_JA-JP3274643778_UHD.jpg) 
+
 2023-08-16 | [東山・大文字山の送り火, 京都 (© gyro/Getty Images)](https://global.bing.com/th?id=OHR.GozanOkuribi2023_JA-JP6571429669_UHD.jpg) 
 
 2023-08-15 | [4 月 9 日広場, イタリア シチリア自治州 (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_JA-JP1602272680_UHD.jpg) 
