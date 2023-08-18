@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-19 | [カメラを覗き込んでいるリス (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_JA-JP2800387213_UHD.jpg) 
+
 2023-08-18 | [張家界国家森林公園, 中国 湖南省 (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_JA-JP2526230045_UHD.jpg) 
 
 2023-08-17 | [グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)](https://global.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_JA-JP3274643778_UHD.jpg) 
