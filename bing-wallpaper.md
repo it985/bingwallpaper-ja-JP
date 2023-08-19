@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-20 | [スタートポイント灯台, イングランド デヴォン州 (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_JA-JP3029099538_UHD.jpg) 
+
 2023-08-19 | [カメラを覗き込んでいるリス (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_JA-JP2800387213_UHD.jpg) 
 
 2023-08-18 | [張家界国家森林公園, 中国 湖南省 (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_JA-JP2526230045_UHD.jpg) 
