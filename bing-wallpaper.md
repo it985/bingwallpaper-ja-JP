@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-22 | [エル・ジェムの円形闘技場, チュニジア (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.TunisiaAmphitheatre_JA-JP3594728371_UHD.jpg) 
+
 2023-08-21 | [エメラルド湖, カナダ ユーコン準州 (© artherng/Getty Images)](https://global.bing.com/th?id=OHR.EmeraldLakeYukon_JA-JP3388151344_UHD.jpg) 
 
 2023-08-20 | [スタートポイント灯台, イングランド デヴォン州 (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_JA-JP3029099538_UHD.jpg) 
