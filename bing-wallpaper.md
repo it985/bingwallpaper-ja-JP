@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-24 | [シャーク・フィン・コーブ, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SharkFinCove_JA-JP4634646966_UHD.jpg) 
+
 2023-08-23 | [スコゥガフォス, アイスランド (© Maridav/Shutterstock)](https://global.bing.com/th?id=OHR.SkogafossWaterfall_JA-JP3872290062_UHD.jpg) 
 
 2023-08-22 | [エル・ジェムの円形闘技場, チュニジア (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.TunisiaAmphitheatre_JA-JP3594728371_UHD.jpg) 
