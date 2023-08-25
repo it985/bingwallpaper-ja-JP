@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-26 | [全国花火競技大会, 秋田県 大仙市 (© Shotaro Yamaki/Shutterstock)](https://global.bing.com/th?id=OHR.Fireworks2023_JA-JP6750105945_UHD.jpg) 
+
 2023-08-25 | [イエローストーン国立公園のロワー滝, 米国 ワイオミング州 (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.YellowstoneFalls_JA-JP6487978368_UHD.jpg) 
 
 2023-08-24 | [シャーク・フィン・コーブ, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SharkFinCove_JA-JP4634646966_UHD.jpg) 
