@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-28 | [ドゥブロヴニク, クロアチア (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_JA-JP7478363701_UHD.jpg) 
+
 2023-08-27 | [済州島の城山日出峰, 韓国 (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_JA-JP7046094436_UHD.jpg) 
 
 2023-08-26 | [全国花火競技大会, 秋田県 大仙市 (© Shotaro Yamaki/Shutterstock)](https://global.bing.com/th?id=OHR.Fireworks2023_JA-JP6750105945_UHD.jpg) 
