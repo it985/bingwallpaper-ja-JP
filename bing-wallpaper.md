@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-29 | [メドック, フランス ジロンド県 (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_JA-JP0395843835_UHD.jpg) 
+
 2023-08-28 | [ドゥブロヴニク, クロアチア (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_JA-JP7478363701_UHD.jpg) 
 
 2023-08-27 | [済州島の城山日出峰, 韓国 (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_JA-JP7046094436_UHD.jpg) 
