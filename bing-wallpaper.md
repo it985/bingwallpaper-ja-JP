@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-30 | [ニンガルー・リーフのジンベエザメ, オーストラリア (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_JA-JP8020672335_UHD.jpg) 
+
 2023-08-29 | [メドック, フランス ジロンド県 (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_JA-JP0395843835_UHD.jpg) 
 
 2023-08-28 | [ドゥブロヴニク, クロアチア (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_JA-JP7478363701_UHD.jpg) 
