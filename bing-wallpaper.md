@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-02 | [アレンハチドリ, 米国 カリフォルニア州 (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_JA-JP9296717974_UHD.jpg) 
+
 2023-09-01 | [草原を走るノロジカの子鹿, フランス ノルマンディー (© Gerard Lacz/Minden)](https://global.bing.com/th?id=OHR.Fawn_JA-JP8985470231_UHD.jpg) 
 
 2023-08-31 | [アイアンウッドフォレスト国定公園, 米国 アリゾナ州 (© Jack Dykinga/Minden Pictures)](https://global.bing.com/th?id=OHR.IronwoodCactus_JA-JP8293481561_UHD.jpg) 
