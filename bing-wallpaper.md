@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-04 | [パッサウ, ドイツ バイエルン州 (© Scott Wilson/Alamy)](https://global.bing.com/th?id=OHR.PassauSunsetJune_JA-JP0027528373_UHD.jpg) 
+
 2023-09-03 | [マンハッタンの航空写真, 米国 ニューヨーク (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_JA-JP9680462311_UHD.jpg) 
 
 2023-09-02 | [アレンハチドリ, 米国 カリフォルニア州 (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_JA-JP9296717974_UHD.jpg) 
