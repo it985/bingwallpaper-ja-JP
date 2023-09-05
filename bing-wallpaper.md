@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-06 | [レティムノの港, ギリシャ (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_JA-JP0584096203_UHD.jpg) 
+
 2023-09-05 | [センヤ島のセグラ山, ノルウェー (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_JA-JP0339074008_UHD.jpg) 
 
 2023-09-04 | [パッサウ, ドイツ バイエルン州 (© Scott Wilson/Alamy)](https://global.bing.com/th?id=OHR.PassauSunsetJune_JA-JP0027528373_UHD.jpg) 
