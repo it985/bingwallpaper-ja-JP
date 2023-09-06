@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-07 | [砂漠のラクダ, アラブ首長国連邦 (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CamelsAbove_JA-JP0843147206_UHD.jpg) 
+
 2023-09-06 | [レティムノの港, ギリシャ (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_JA-JP0584096203_UHD.jpg) 
 
 2023-09-05 | [センヤ島のセグラ山, ノルウェー (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_JA-JP0339074008_UHD.jpg) 
