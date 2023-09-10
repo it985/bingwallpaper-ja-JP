@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-11 | [ワット・チャイワッタナーラーム, タイ (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_JA-JP9148081636_UHD.jpg) 
+
 2023-09-10 | [スバールバル諸島の海で泳ぐ 2 頭のセイウチ, ノルウェー (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_JA-JP8892338730_UHD.jpg) 
 
 2023-09-09 | [菊の花 (© Maciej Figiel/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.DoubleNinth2023_JA-JP8635175549_UHD.jpg) 
