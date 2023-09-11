@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-12 | [アムルム島のノルドドルフ, ドイツ  (© Frederick Doerschem/Getty Images)](https://global.bing.com/th?id=OHR.NorthSeaStairs_JA-JP9369020397_UHD.jpg) 
+
 2023-09-11 | [ワット・チャイワッタナーラーム, タイ (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_JA-JP9148081636_UHD.jpg) 
 
 2023-09-10 | [スバールバル諸島の海で泳ぐ 2 頭のセイウチ, ノルウェー (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_JA-JP8892338730_UHD.jpg) 
