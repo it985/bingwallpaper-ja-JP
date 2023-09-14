@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-15 | [グランド・クルドサック・マリン, フランス (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.Antilles_JA-JP0033254185_UHD.jpg) 
+
 2023-09-14 | [ホスタイ国立公園のモウコノウマ, モンゴル (© Ondrej Prosicky/Shutterstock)](https://global.bing.com/th?id=OHR.MongoliaHorses_JA-JP9826935839_UHD.jpg) 
 
 2023-09-13 | [ヘーマクータの丘寺院群, インド ハンピ (© Images of india/Alamy)](https://global.bing.com/th?id=OHR.HemakutaHill_JA-JP9592522804_UHD.jpg) 
