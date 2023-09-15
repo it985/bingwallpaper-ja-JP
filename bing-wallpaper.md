@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-16 | [シュプリューゲン峠, スイス (© Roberto Moiola/Getty Images)](https://global.bing.com/th?id=OHR.SplugenPass_JA-JP0320283828_UHD.jpg) 
+
 2023-09-15 | [グランド・クルドサック・マリン, フランス (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.Antilles_JA-JP0033254185_UHD.jpg) 
 
 2023-09-14 | [ホスタイ国立公園のモウコノウマ, モンゴル (© Ondrej Prosicky/Shutterstock)](https://global.bing.com/th?id=OHR.MongoliaHorses_JA-JP9826935839_UHD.jpg) 
