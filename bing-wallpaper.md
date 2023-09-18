@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-19 | [オクトーバーフェストのビールテント, ドイツ ミュンヘン (© Peter Kneffel/picture alliance via Getty Images)](https://global.bing.com/th?id=OHR.OktoberfestWorkers_JA-JP1759437579_UHD.jpg) 
+
 2023-09-18 | [コノハズク, 鳥取県 (© Eric Sohn Joo Tan/Minden)](https://global.bing.com/th?id=OHR.AgedDay2023_JA-JP1020086931_UHD.jpg) 
 
 2023-09-17 | [アレハンドロ・デ・フンボルト国立公園のキューバコビトドリ, キューバ (© Bruno D'Amicis/Minden Pictures)](https://global.bing.com/th?id=OHR.CubanTody_JA-JP0587764266_UHD.jpg) 
