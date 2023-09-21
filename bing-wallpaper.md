@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-22 | [シャムワリ動物保護区, 南アフリカ (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_JA-JP0625327477_UHD.jpg) 
+
 2023-09-21 | [ノーベル平和センター, ノルウェー オスロ (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_JA-JP2271090168_UHD.jpg) 
 
 2023-09-20 | [アルカディア公園, ポーランド (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_JA-JP2000756191_UHD.jpg) 
