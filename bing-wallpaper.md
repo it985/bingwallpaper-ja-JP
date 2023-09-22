@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-23 | [巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)](https://global.bing.com/th?id=OHR.Qiufen2023_JA-JP6160561062_UHD.jpg) 
+
 2023-09-22 | [シャムワリ動物保護区, 南アフリカ (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_JA-JP0625327477_UHD.jpg) 
 
 2023-09-21 | [ノーベル平和センター, ノルウェー オスロ (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_JA-JP2271090168_UHD.jpg) 
