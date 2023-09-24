@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-25 | [グレイシャーベイ国立公園, 米国 アラスカ州 (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_JA-JP4374732070_UHD.jpg) 
+
 2023-09-24 | [リアガード滝州立公園を流れるフレーザー川, カナダ ブリティッシュコロンビア州 (© phototropic/Getty Images)](https://global.bing.com/th?id=OHR.FraserRiverBC_JA-JP3101600777_UHD.jpg) 
 
 2023-09-23 | [巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)](https://global.bing.com/th?id=OHR.Qiufen2023_JA-JP6160561062_UHD.jpg) 
