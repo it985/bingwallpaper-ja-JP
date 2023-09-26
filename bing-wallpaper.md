@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-27 | [カプリ島のクルップ通り, イタリア (© Mikolaj Niemczewski/Shutterstock)](https://global.bing.com/th?id=OHR.CapriKrupp_JA-JP5333872542_UHD.jpg) 
+
 2023-09-26 | [ベニススケートパーク, 米国 カリフォルニア州 (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_JA-JP4662081868_UHD.jpg) 
 
 2023-09-25 | [グレイシャーベイ国立公園, 米国 アラスカ州 (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_JA-JP4374732070_UHD.jpg) 
