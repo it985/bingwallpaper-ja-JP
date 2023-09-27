@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-28 | [カラフルなコンテナ船, タイ (© Suriyapong Thongsawang/Getty Images)](https://global.bing.com/th?id=OHR.MaritimeDay_JA-JP6354094674_UHD.jpg) 
+
 2023-09-27 | [カプリ島のクルップ通り, イタリア (© Mikolaj Niemczewski/Shutterstock)](https://global.bing.com/th?id=OHR.CapriKrupp_JA-JP5333872542_UHD.jpg) 
 
 2023-09-26 | [ベニススケートパーク, 米国 カリフォルニア州 (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_JA-JP4662081868_UHD.jpg) 
