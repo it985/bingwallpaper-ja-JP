@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-29 | [横浜ベイブリッジと満月, 神奈川県 横浜市 (© kanzilyou/Getty Images)](https://global.bing.com/th?id=OHR.HarvestMoon2023_JA-JP6232701669_UHD.jpg) 
+
 2023-09-28 | [カラフルなコンテナ船, タイ (© Suriyapong Thongsawang/Getty Images)](https://global.bing.com/th?id=OHR.MaritimeDay_JA-JP6354094674_UHD.jpg) 
 
 2023-09-27 | [カプリ島のクルップ通り, イタリア (© Mikolaj Niemczewski/Shutterstock)](https://global.bing.com/th?id=OHR.CapriKrupp_JA-JP5333872542_UHD.jpg) 
