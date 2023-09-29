@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-30 | [シェナンドー国立公園, 米国 バージニア州 (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_JA-JP6899643261_UHD.jpg) 
+
 2023-09-29 | [横浜ベイブリッジと満月, 神奈川県 横浜市 (© kanzilyou/Getty Images)](https://global.bing.com/th?id=OHR.HarvestMoon2023_JA-JP6232701669_UHD.jpg) 
 
 2023-09-28 | [カラフルなコンテナ船, タイ (© Suriyapong Thongsawang/Getty Images)](https://global.bing.com/th?id=OHR.MaritimeDay_JA-JP6354094674_UHD.jpg) 
