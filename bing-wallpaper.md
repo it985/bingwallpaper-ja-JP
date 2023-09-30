@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-01 | [ブレッド湖, スロベニア (© Rasica/Getty Images)](https://global.bing.com/th?id=OHR.LakeBledSunrise_JA-JP6531539874_UHD.jpg) 
+
 2023-09-30 | [シェナンドー国立公園, 米国 バージニア州 (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_JA-JP6899643261_UHD.jpg) 
 
 2023-09-29 | [横浜ベイブリッジと満月, 神奈川県 横浜市 (© kanzilyou/Getty Images)](https://global.bing.com/th?id=OHR.HarvestMoon2023_JA-JP6232701669_UHD.jpg) 
