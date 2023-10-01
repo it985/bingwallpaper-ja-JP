@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-02 | [フォンダシオン・ルイ・ヴィトン, フランス パリ (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.VuittonFoundation_JA-JP7245155728_UHD.jpg) 
+
 2023-10-01 | [ブレッド湖, スロベニア (© Rasica/Getty Images)](https://global.bing.com/th?id=OHR.LakeBledSunrise_JA-JP6531539874_UHD.jpg) 
 
 2023-09-30 | [シェナンドー国立公園, 米国 バージニア州 (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_JA-JP6899643261_UHD.jpg) 
