@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-06 | [タガノックフォールズ州立公園, 米国 ニューヨーク州 (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_JA-JP2595507863_UHD.jpg) 
+
 2023-10-05 | [ジェンツーペンギン, 南極大陸 (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_JA-JP8308957970_UHD.jpg) 
 
 2023-10-04 | [タランチュラ星雲 (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_JA-JP8062980549_UHD.jpg) 
