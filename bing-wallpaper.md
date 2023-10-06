@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-07 | [カトマイ国立公園, 米国 アラスカ州 (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_JA-JP3634717781_UHD.jpg) 
+
 2023-10-06 | [タガノックフォールズ州立公園, 米国 ニューヨーク州 (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_JA-JP2595507863_UHD.jpg) 
 
 2023-10-05 | [ジェンツーペンギン, 南極大陸 (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_JA-JP8308957970_UHD.jpg) 
