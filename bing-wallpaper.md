@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-08 | [志賀高原の澗満滝, 長野県 (© Twenty47studio/Getty Images)](https://global.bing.com/th?id=OHR.Hanlu2023_JA-JP9061398422_UHD.jpg) 
+
 2023-10-07 | [カトマイ国立公園, 米国 アラスカ州 (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_JA-JP3634717781_UHD.jpg) 
 
 2023-10-06 | [タガノックフォールズ州立公園, 米国 ニューヨーク州 (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_JA-JP2595507863_UHD.jpg) 
