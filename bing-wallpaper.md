@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-10 | [ソプリス山, 米国 コロラド州 (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_JA-JP4661289505_UHD.jpg) 
+
 2023-10-09 | [ダイナソー国定公園のペトログリフ, 米国 ユタ州 (© Dan Leeth/Alamy)](https://global.bing.com/th?id=OHR.FremontPetroglyph_JA-JP4463942591_UHD.jpg) 
 
 2023-10-08 | [志賀高原の澗満滝, 長野県 (© Twenty47studio/Getty Images)](https://global.bing.com/th?id=OHR.Hanlu2023_JA-JP9061398422_UHD.jpg) 
