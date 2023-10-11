@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-12 | [ナミハリネズミ, イギリス サセックス (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_JA-JP5112338279_UHD.jpg) 
+
 2023-10-11 | [ペインテッド・ヒルズ, 米国 オレゴン州 (© Ben Herndon/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JohnDayFossil_JA-JP4939984855_UHD.jpg) 
 
 2023-10-10 | [ソプリス山, 米国 コロラド州 (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_JA-JP4661289505_UHD.jpg) 
