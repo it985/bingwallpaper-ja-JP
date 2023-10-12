@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-13 | [ガルガーノ半島のヴィエステ, イタリア プッリャ州 (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_JA-JP5299332790_UHD.jpg) 
+
 2023-10-12 | [ナミハリネズミ, イギリス サセックス (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_JA-JP5112338279_UHD.jpg) 
 
 2023-10-11 | [ペインテッド・ヒルズ, 米国 オレゴン州 (© Ben Herndon/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JohnDayFossil_JA-JP4939984855_UHD.jpg) 
