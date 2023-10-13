@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-14 | [第三只見川橋梁を渡る列車, 福島県 大沼郡 三島町 (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.RailwayDay2023_JA-JP6915793143_UHD.jpg) 
+
 2023-10-13 | [ガルガーノ半島のヴィエステ, イタリア プッリャ州 (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_JA-JP5299332790_UHD.jpg) 
 
 2023-10-12 | [ナミハリネズミ, イギリス サセックス (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_JA-JP5112338279_UHD.jpg) 
