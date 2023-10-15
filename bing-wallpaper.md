@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-16 | [エンチャントメンツ, 米国 ワシントン州 (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenEnchantments_JA-JP7939818582_UHD.jpg) 
+
 2023-10-15 | [金環日食, カタール ドーハ (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_JA-JP9257563062_UHD.jpg) 
 
 2023-10-14 | [第三只見川橋梁を渡る列車, 福島県 大沼郡 三島町 (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.RailwayDay2023_JA-JP6915793143_UHD.jpg) 
