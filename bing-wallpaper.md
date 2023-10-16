@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-17 | [ペルセポリスの碑文の楔形文字, イラン ファールス州 (© George Hall/Alamy)](https://global.bing.com/th?id=OHR.SpreadsheetDay_JA-JP8161682030_UHD.jpg) 
+
 2023-10-16 | [エンチャントメンツ, 米国 ワシントン州 (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenEnchantments_JA-JP7939818582_UHD.jpg) 
 
 2023-10-15 | [金環日食, カタール ドーハ (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_JA-JP9257563062_UHD.jpg) 
