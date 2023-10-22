@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-23 | [マゼジラ, 米国 ペンシルベニア州 (© Alex Potemkin/Getty Images)](https://global.bing.com/th?id=OHR.PoconosMaze_JA-JP2722442659_UHD.jpg) 
+
 2023-10-22 | [平安神宮, 京都府 京都市 (© Arif Iqball Photography-Japan/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.JidaiMatsuri2023_JA-JP2436746215_UHD.jpg) 
 
 2023-10-21 | [ペルセポリス, イラン (© Ozbalci/Getty Images)](https://global.bing.com/th?id=OHR.PersepolisRelief_JA-JP2088549399_UHD.jpg) 
