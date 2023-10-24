@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-25 | [グランド・ステアケース＝エスカランテ国定記念公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_JA-JP3373019337_UHD.jpg) 
+
 2023-10-24 | [フュゼール城, ハンガリー (© ZGPhotography/Alamy)](https://global.bing.com/th?id=OHR.FuzerCastle_JA-JP2974614535_UHD.jpg) 
 
 2023-10-23 | [マゼジラ, 米国 ペンシルベニア州 (© Alex Potemkin/Getty Images)](https://global.bing.com/th?id=OHR.PoconosMaze_JA-JP2722442659_UHD.jpg) 
