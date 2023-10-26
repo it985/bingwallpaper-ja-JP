@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-27 | [スカイ島のスリガチャン・オールド・ブリッジ, スコットランド (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.OldBridgeSkye_JA-JP3696006091_UHD.jpg) 
+
 2023-10-26 | [シェーンブルン宮殿, オーストリア ウィーン (© rusm/Getty Images)](https://global.bing.com/th?id=OHR.ViennaAutumn_JA-JP3547270203_UHD.jpg) 
 
 2023-10-25 | [グランド・ステアケース＝エスカランテ国定記念公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_JA-JP3373019337_UHD.jpg) 
