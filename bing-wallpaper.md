@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-31 | [ハロウィンのシンボルであるジャック・オー・ランタン (© Bing Image Creator)](https://global.bing.com/th?id=OHR.HalloweenCuteAI_JA-JP4715230706_UHD.jpg) 
+
 2023-10-30 | [グレナリフ森林公園, 北アイルランド アントリム県 (© Peter Zelei/Getty Images)](https://global.bing.com/th?id=OHR.GlenariffForest_JA-JP1774079251_UHD.jpg) 
 
 2023-10-29 | [ブールジュの沼地, フランス (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.BourgesMarsh_JA-JP4265679422_UHD.jpg) 
