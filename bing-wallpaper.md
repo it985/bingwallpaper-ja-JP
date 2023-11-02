@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-03 | [スリー・シスターズ・スプリングス, 米国 フロリダ州 クリスタルリバー市 (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ManateeMama_JA-JP0142051639_UHD.jpg) 
+
 2023-11-02 | [デスバレー国立公園, 米国 カリフォルニア州 (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DeathValleySalt_JA-JP5389792178_UHD.jpg) 
 
 2023-11-01 | [コロンビア川とアストリア・メグラー橋, 米国 オレゴン州 (© Dan Mihai/Getty Images)](https://global.bing.com/th?id=OHR.AstoriaBridge_JA-JP5052562579_UHD.jpg) 
