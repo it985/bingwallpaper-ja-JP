@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-05 | [静寂のビーチ, スペイン アストゥリアス州 (© Jean-Philippe Delobelle/Minden Pictures)](https://global.bing.com/th?id=OHR.SilencioSpain_JA-JP2937040234_UHD.jpg) 
+
 2023-11-04 | [イエローストーン国立公園のバイソン, 米国 ワイオミング州 (© Gary Gray/Getty Images)](https://global.bing.com/th?id=OHR.BisonSnow_JA-JP2748366682_UHD.jpg) 
 
 2023-11-03 | [スリー・シスターズ・スプリングス, 米国 フロリダ州 クリスタルリバー市 (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ManateeMama_JA-JP0142051639_UHD.jpg) 
