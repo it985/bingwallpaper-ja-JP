@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-06 | [トーレス・デル・パイネ国立公園, チリ (© OST/Getty Images)](https://global.bing.com/th?id=OHR.LagoPehoe_JA-JP3134234118_UHD.jpg) 
+
 2023-11-05 | [静寂のビーチ, スペイン アストゥリアス州 (© Jean-Philippe Delobelle/Minden Pictures)](https://global.bing.com/th?id=OHR.SilencioSpain_JA-JP2937040234_UHD.jpg) 
 
 2023-11-04 | [イエローストーン国立公園のバイソン, 米国 ワイオミング州 (© Gary Gray/Getty Images)](https://global.bing.com/th?id=OHR.BisonSnow_JA-JP2748366682_UHD.jpg) 
