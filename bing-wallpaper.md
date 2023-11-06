@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-07 | [ビルジャイ地域公園, リトアニア (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.KirkilaiTower_JA-JP2022080593_UHD.jpg) 
+
 2023-11-06 | [トーレス・デル・パイネ国立公園, チリ (© OST/Getty Images)](https://global.bing.com/th?id=OHR.LagoPehoe_JA-JP3134234118_UHD.jpg) 
 
 2023-11-05 | [静寂のビーチ, スペイン アストゥリアス州 (© Jean-Philippe Delobelle/Minden Pictures)](https://global.bing.com/th?id=OHR.SilencioSpain_JA-JP2937040234_UHD.jpg) 
