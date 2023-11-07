@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-08 | [干し柿, 山梨県 南都留郡 富士河口湖町 (© STEPHEN FLEMING/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Lidong2023_JA-JP3829424254_UHD.jpg) 
+
 2023-11-07 | [ビルジャイ地域公園, リトアニア (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.KirkilaiTower_JA-JP2022080593_UHD.jpg) 
 
 2023-11-06 | [トーレス・デル・パイネ国立公園, チリ (© OST/Getty Images)](https://global.bing.com/th?id=OHR.LagoPehoe_JA-JP3134234118_UHD.jpg) 
