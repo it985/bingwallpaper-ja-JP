@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-09 | [ドランメンの白樺林, ノルウェー (© Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBirch_JA-JP0530837645_UHD.jpg) 
+
 2023-11-08 | [干し柿, 山梨県 南都留郡 富士河口湖町 (© STEPHEN FLEMING/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Lidong2023_JA-JP3829424254_UHD.jpg) 
 
 2023-11-07 | [ビルジャイ地域公園, リトアニア (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.KirkilaiTower_JA-JP2022080593_UHD.jpg) 
