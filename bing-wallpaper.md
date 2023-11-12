@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-13 | [マヨルカ島のトラムンタナ山脈, スペイン (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.OliveOrchard_JA-JP4824162139_UHD.jpg) 
+
 2023-11-12 | [ランプが灯るアヨーディヤー, インド (© SANJAY KANOJIA/AFP/Getty Images)](https://global.bing.com/th?id=OHR.DiwaliAyodhya_JA-JP0829173693_UHD.jpg) 
 
 2023-11-11 | [サレック国立公園, スウェ��デン (© Hans Strand/Getty Images)](https://global.bing.com/th?id=OHR.SarekSweden_JA-JP0736730927_UHD.jpg) 
