@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-14 | [テカポ湖, ニュージーランド (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.RussellLupines_JA-JP1047682065_UHD.jpg) 
+
 2023-11-13 | [マヨルカ島のトラムンタナ山脈, スペイン (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.OliveOrchard_JA-JP4824162139_UHD.jpg) 
 
 2023-11-12 | [ランプが灯るアヨーディヤー, インド (© SANJAY KANOJIA/AFP/Getty Images)](https://global.bing.com/th?id=OHR.DiwaliAyodhya_JA-JP0829173693_UHD.jpg) 
