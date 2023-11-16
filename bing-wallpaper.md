@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-17 | [グランド・ティトン国立公園, 米国 ワイオミング州 (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.SnakeRiverTeton_JA-JP1792583691_UHD.jpg) 
+
 2023-11-16 | [アクロポリス, ギリシャ (© Mlenny/Getty Images)](https://global.bing.com/th?id=OHR.AthensAcropolis_JA-JP1206532220_UHD.jpg) 
 
 2023-11-15 | [七五三の絵馬 (© 222studio/Shutterstock)](https://global.bing.com/th?id=OHR.ShichiGoSan2023_JA-JP6423389600_UHD.jpg) 
