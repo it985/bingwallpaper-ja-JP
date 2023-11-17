@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-18 | [チャーチルの雪景色, カナダ マニトバ州  (© Thorsten Milse/Getty Images)](https://global.bing.com/th?id=OHR.MilsePolarBear_JA-JP2676664686_UHD.jpg) 
+
 2023-11-17 | [グランド・ティトン国立公園, 米国 ワイオミング州 (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.SnakeRiverTeton_JA-JP1792583691_UHD.jpg) 
 
 2023-11-16 | [アクロポリス, ギリシャ (© Mlenny/Getty Images)](https://global.bing.com/th?id=OHR.AthensAcropolis_JA-JP1206532220_UHD.jpg) 
