@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-21 | [ノーフォーク海岸, イギリス イングランド (© Vince Burton/Minden Pictures)](https://global.bing.com/th?id=OHR.HelloSeal_JA-JP3912417099_UHD.jpg) 
+
 2023-11-20 | [ギャザリング・プレイス公園内の滑り台, 米国 オクラホマ州 (© Susan Vineyard/Alamy)](https://global.bing.com/th?id=OHR.ChapmanAdventure_JA-JP3299214561_UHD.jpg) 
 
 2023-11-19 | [アラムペジャ自然保護区, エストニア (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.FrozenBog_JA-JP3036034875_UHD.jpg) 
