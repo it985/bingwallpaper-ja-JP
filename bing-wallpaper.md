@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-24 | [オリンピック国立公園の温帯雨林, 米国 ワシントン州 (© James Randklev/Getty Images)](https://global.bing.com/th?id=OHR.HallofMosses_JA-JP4877057961_UHD.jpg) 
+
 2023-11-23 | [ブラッドゲート・パーク, イギリス イングランド (© Chris Bainbridge/Alamy)](https://global.bing.com/th?id=OHR.BradgateFallow_JA-JP4632580137_UHD.jpg) 
 
 2023-11-22 | [初冬の阿寒湖周辺, 北海道 釧路市 (© vladimir zakharov/Getty Images)](https://global.bing.com/th?id=OHR.Xiaoxue2023_JA-JP4270732262_UHD.jpg) 
