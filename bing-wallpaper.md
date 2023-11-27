@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-28 | [手と手をつなぐ巨大な地上絵, トルコ イスタンブール (© Chris McGrath/Getty Images)](https://global.bing.com/th?id=OHR.HumanKindness_JA-JP6290539891_UHD.jpg) 
+
 2023-11-27 | [ネグロ川, ブラジル  (© Timothy Allen/Getty Images)](https://global.bing.com/th?id=OHR.RioNegro_JA-JP6030654959_UHD.jpg) 
 
 2023-11-26 | [修善寺温泉街, 静岡県 伊豆市 (© JaCZhou 2015/Getty Images)](https://global.bing.com/th?id=OHR.BathingDay2023_JA-JP8643192749_UHD.jpg) 
