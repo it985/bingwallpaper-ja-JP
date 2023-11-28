@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-29 | [ロックフェラーセンター,  米国 ニューヨーク州 (© Jonathan Orenstein/Getty Images)](https://global.bing.com/th?id=OHR.TreeLighting_JA-JP6880977842_UHD.jpg) 
+
 2023-11-28 | [手と手をつなぐ巨大な地上絵, トルコ イスタンブール (© Chris McGrath/Getty Images)](https://global.bing.com/th?id=OHR.HumanKindness_JA-JP6290539891_UHD.jpg) 
 
 2023-11-27 | [ネグロ川, ブラジル  (© Timothy Allen/Getty Images)](https://global.bing.com/th?id=OHR.RioNegro_JA-JP6030654959_UHD.jpg) 
