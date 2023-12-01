@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-02 | [アンコール遺跡, カンボジア (© Amazing Travel Lifestyle/Shutterstock)](https://global.bing.com/th?id=OHR.AngkorPark_JA-JP7719711425_UHD.jpg) 
+
 2023-12-01 | [ロス海の氷山, 南極 (© Michel Roggo/Minden Pictures)](https://global.bing.com/th?id=OHR.IcebergAntarctica_JA-JP7499377944_UHD.jpg) 
 
 2023-11-30 | [スカイ島の奇岩, イギリス スコットランド (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.TrotternishStorr_JA-JP7531639858_UHD.jpg) 
