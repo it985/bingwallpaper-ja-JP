@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-03 | [豪華絢爛な山車と花火, 埼玉県 秩父市 (© ASSOCIATED PRESS/AP)](https://global.bing.com/th?id=OHR.ChichibuNightFestival2023_JA-JP7273209766_UHD.jpg) 
+
 2023-12-02 | [アンコール遺跡, カンボジア (© Amazing Travel Lifestyle/Shutterstock)](https://global.bing.com/th?id=OHR.AngkorPark_JA-JP7719711425_UHD.jpg) 
 
 2023-12-01 | [ロス海の氷山, 南極 (© Michel Roggo/Minden Pictures)](https://global.bing.com/th?id=OHR.IcebergAntarctica_JA-JP7499377944_UHD.jpg) 
