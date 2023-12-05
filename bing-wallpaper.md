@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-06 | [グローブ・オブ・サイエンス・アンド・イノベーション, スイス (© Deyan Baric/Alamy)](https://global.bing.com/th?id=OHR.CERNCenter_JA-JP8644590306_UHD.jpg) 
+
 2023-12-05 | [ノイシュヴァンシュタイン城とホーエンシュヴァンガウ城, ドイツ (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.AlpsCastles_JA-JP8376783369_UHD.jpg) 
 
 2023-12-04 | [マサイマラ国立保護区のチーター親子, ケニア (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CheetahDay_JA-JP9363476313_UHD.jpg) 
