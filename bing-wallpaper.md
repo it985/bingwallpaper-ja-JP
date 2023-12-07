@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-08 | [ラ・ロック港, イギリス ジャージー (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.JerseyIsland_JA-JP9047717221_UHD.jpg) 
+
 2023-12-07 | [白川郷の雪景色, 岐阜県 (© MIYAMOTO_Y/Getty Images)](https://global.bing.com/th?id=OHR.Taisetsu2023_JA-JP8835846835_UHD.jpg) 
 
 2023-12-06 | [グローブ・オブ・サイエンス・アンド・イノベーション, スイス (© Deyan Baric/Alamy)](https://global.bing.com/th?id=OHR.CERNCenter_JA-JP8644590306_UHD.jpg) 
