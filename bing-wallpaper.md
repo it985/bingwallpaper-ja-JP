@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-10 | [サハラ砂漠の砂丘群, アルジェリア (© AWL Images/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.SaharaDunes_JA-JP9880519356_UHD.jpg) 
+
 2023-12-09 | [ロス・グラシアレス国立公園, アルゼンチン サンタクルス州 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.PatagoniaGuanaco_JA-JP9289899395_UHD.jpg) 
 
 2023-12-08 | [ラ・ロック港, イギリス ジャージー (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.JerseyIsland_JA-JP9047717221_UHD.jpg) 
