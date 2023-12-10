@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-11 | [冬の黄山, 中国 安徽省 (© Hung Chung Chih/Shutterstock)](https://global.bing.com/th?id=OHR.MountainDayChina_JA-JP0160517596_UHD.jpg) 
+
 2023-12-10 | [サハラ砂漠の砂丘群, アルジェリア (© AWL Images/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.SaharaDunes_JA-JP9880519356_UHD.jpg) 
 
 2023-12-09 | [ロス・グラシアレス国立公園, アルゼンチン サンタクルス州 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.PatagoniaGuanaco_JA-JP9289899395_UHD.jpg) 
