@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-14 | [キンメフクロウ, カナダ サスカチュワン州 (© Nick Saunders/Minden Pictures)](https://global.bing.com/th?id=OHR.BorealOwl_JA-JP0826064778_UHD.jpg) 
+
 2023-12-13 | [スボールバル, ノルウェー (© Roberto Moiola/Sysaworld/Getty Images)](https://global.bing.com/th?id=OHR.LofotenRorbu_JA-JP0645776855_UHD.jpg) 
 
 2023-12-12 | [ポインセチア (© Yarygin/Getty Images)](https://global.bing.com/th?id=OHR.Poinsettia_JA-JP0391640145_UHD.jpg) 
