@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-18 | [キャピトル・リーフ国立公園 , 米国 ユタ州 (© Jeff Clay/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CapitolReefSnow_JA-JP1048193516_UHD.jpg) 
+
 2023-12-17 | [枝に止まるキレンジャク, カナダ (© Jim Cumming/Shutterstock)](https://global.bing.com/th?id=OHR.WinterWaxwings_JA-JP9441530604_UHD.jpg) 
 
 2023-12-16 | [グラン・プラス, ベルギー ブリュッセル (© Richard Taylor/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.GrandPlaceXmas_JA-JP8582950407_UHD.jpg) 
