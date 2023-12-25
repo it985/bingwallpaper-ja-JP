@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-26 | [デダムでの日の出, イギリス コルチェスター (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.BoxingDaySunrise_JA-JP3167199681_UHD.jpg) 
+
 2023-12-25 | [トナカイ, 米国 アラスカ州 (© Michael Quinton/Minden Pictures)](https://global.bing.com/th?id=OHR.CaribouChristmas_JA-JP0784356200_UHD.jpg) 
 
 2023-12-24 | [クリスマスツリーで彩られた広場, エストニア タルトゥ (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.EstoniaXmasEve_JA-JP0366507453_UHD.jpg) 
