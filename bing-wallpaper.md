@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-28 | [ディスコ湾のザトウクジラ, グリーンランド (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_JA-JP1574725222_UHD.jpg) 
+
 2023-12-27 | [キルキュフェットル山, アイスランド (© Ratnakorn Piyasirisorost/Getty Images)](https://global.bing.com/th?id=OHR.KirkjufellAurora_JA-JP1371346229_UHD.jpg) 
 
 2023-12-26 | [デダムでの日の出, イギリス コルチェスター (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.BoxingDaySunrise_JA-JP3167199681_UHD.jpg) 
