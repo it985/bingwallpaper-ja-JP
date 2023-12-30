@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-31 | [増上寺の梵鐘, 東京 (© kanzilyou/Adobe Stock)](https://global.bing.com/th?id=OHR.Omisoka2023_JA-JP4038808718_UHD.jpg) 
+
 2023-12-30 | [第一只見川橋梁, 福島県 (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.TadamiWinter_JA-JP3859322331_UHD.jpg) 
 
 2023-12-29 | [アムステルダム, オランダ (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.BlueAmsterdam_JA-JP3650946549_UHD.jpg) 
