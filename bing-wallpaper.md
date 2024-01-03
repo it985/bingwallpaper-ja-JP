@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-04 | [ゴールデン・ゲート・ブリッジ, 米国 サンフランシスコ (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenGateLight_JA-JP2205373586_UHD.jpg) 
+
 2024-01-03 | [オックスフォード大学のボドリアン図書館, イギリス (© Andrew Holt/Getty Images)](https://global.bing.com/th?id=OHR.BodleianCeiling_JA-JP1889636385_UHD.jpg) 
 
 2024-01-02 | [ポブジカ渓谷, ブータン (© John Warburton-Lee/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.BhutanSolstice_JA-JP1805849873_UHD.jpg) 
