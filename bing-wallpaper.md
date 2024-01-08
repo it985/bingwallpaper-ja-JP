@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-09 | [リオ・グランデ川上空に舞い上がる気球, 米国 コロラド州 (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_JA-JP2573832501_UHD.jpg) 
+
 2024-01-08 | [ベルニナ峠, スイス (© Francesco Bergamaschi/Getty Images)](https://global.bing.com/th?id=OHR.BerninaPass_JA-JP7712918425_UHD.jpg) 
 
 2024-01-07 | [デビルズマーブルズ保護区, オーストラリア (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.DevilsMarbles_JA-JP2428291852_UHD.jpg) 
