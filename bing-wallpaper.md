@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-13 | [勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)](https://global.bing.com/th?id=OHR.Daruma2024_JA-JP9897104150_UHD.jpg) 
+
 2024-01-12 | [北漢山国立公園, 韓国 (© TRAVEL TAKE PHOTOS/Shutterstock)](https://global.bing.com/th?id=OHR.BukhansanSeoul_JA-JP1162904036_UHD.jpg) 
 
 2024-01-11 | [オオヤマネコ (© Jan Stria/Shutterstock)](https://global.bing.com/th?id=OHR.LynxSnow_JA-JP2676099304_UHD.jpg) 
