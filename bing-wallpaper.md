@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-15 | [マウイ島のハナハイウェイ, 米国 ハワイ州 (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.HanaHighway_JA-JP5594909770_UHD.jpg) 
+
 2024-01-14 | [屈斜路湖, 北海道 (© Darrell Gulin/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.HokkaidoSwans_JA-JP3605792409_UHD.jpg) 
 
 2024-01-13 | [勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)](https://global.bing.com/th?id=OHR.Daruma2024_JA-JP9897104150_UHD.jpg) 
