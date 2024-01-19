@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-20 | [音羽橋から見る川霧に佇むタンチョウ, 北海道 阿寒郡 (© Natapong Supalertsophon/Getty Images)](https://global.bing.com/th?id=OHR.Daikan2024_JA-JP9341510234_UHD.jpg) 
+
 2024-01-19 | [プリトヴィツェ湖群国立公園, クロアチア (© Massimo_S8/Getty Images)](https://global.bing.com/th?id=OHR.PlitviceWinter_JA-JP1926981970_UHD.jpg) 
 
 2024-01-18 | [アレクサンドル 3 世橋, フランス パリ (© Sizun Eye/Getty Images)](https://global.bing.com/th?id=OHR.ParisBridge_JA-JP7502194315_UHD.jpg) 
