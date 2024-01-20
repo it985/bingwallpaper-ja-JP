@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-21 | [木の枝につかまるキタリス, オランダ (© Ernst Dirksen/Minden Pictures)](https://global.bing.com/th?id=OHR.SquirrelNetherlands_JA-JP9623906743_UHD.jpg) 
+
 2024-01-20 | [音羽橋から見る川霧に佇むタンチョウ, 北海道 阿寒郡 (© Natapong Supalertsophon/Getty Images)](https://global.bing.com/th?id=OHR.Daikan2024_JA-JP9341510234_UHD.jpg) 
 
 2024-01-19 | [プリトヴィツェ湖群国立公園, クロアチア (© Massimo_S8/Getty Images)](https://global.bing.com/th?id=OHR.PlitviceWinter_JA-JP1926981970_UHD.jpg) 
