@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-26 | [枝にとまるオナガフクロウ (© Remo Savisaar/Alamy)](https://global.bing.com/th?id=OHR.HawkOwl_JA-JP5530639554_UHD.jpg) 
+
 2024-01-25 | [イニス・ランドウィンにある遺跡, イギリス ウェールズ (© Photos by R A Kearton/Getty Images)](https://global.bing.com/th?id=OHR.DwynwensDay_JA-JP1767839645_UHD.jpg) 
 
 2024-01-24 | [ダイヤモンドビーチ, アイスランド (© Rachid Dahnoun/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.IcelandBeach_JA-JP1317464051_UHD.jpg) 
