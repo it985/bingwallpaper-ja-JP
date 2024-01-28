@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-29 | [ゴーリング滝, オーストリア ザルツブルク州 (© Frank Fischbach/Alamy)](https://global.bing.com/th?id=OHR.GollingerFalls_JA-JP9041099728_UHD.jpg) 
+
 2024-01-28 | [チャネル・カントリー, オーストラリア クイーンズランド州 (© Southern Lightscapes-Australia/Getty Images)](https://global.bing.com/th?id=OHR.ChannelOutback_JA-JP8591978293_UHD.jpg) 
 
 2024-01-27 | [氷の宮殿, 米国 ミネソタ州 (© Joe Mamer Photography/Alamy)](https://global.bing.com/th?id=OHR.WinterCarnival_JA-JP8320595671_UHD.jpg) 
