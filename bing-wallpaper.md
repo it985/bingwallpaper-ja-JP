@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-10 | [華やかな龍舞, 中国 四川省 瀘州市 (© Liu Guoxing/VCG via Getty Images)](https://global.bing.com/th?id=OHR.ChinaDragon_JA-JP6088029412_UHD.jpg) 
+
 2024-02-09 | [お城の雪像, 北海道 札幌市 (© Terry Donnelly/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SapporoSnowFest2024_JA-JP5845958327_UHD.jpg) 
 
 2024-02-08 | [フッド山, 米国 オレゴン州 (© Inigo Cia/Getty Images)](https://global.bing.com/th?id=OHR.MtHoodOregon_JA-JP1952709545_UHD.jpg) 
