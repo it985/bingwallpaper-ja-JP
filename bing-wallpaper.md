@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-14 | [求愛ダンスを舞うタンチョウ, 北海道 (© Steve Bloom Images/Alamy)](https://global.bing.com/th?id=OHR.BowingCrane_JA-JP6968020887_UHD.jpg) 
+
 2024-02-13 | [カラフルなビーズの首飾り, 米国 ルイジアナ州 (© Erik Pronske Photography/Getty Images)](https://global.bing.com/th?id=OHR.MarignyBeads_JA-JP4162697836_UHD.jpg) 
 
 2024-02-12 | [ガラパゴスゾウガメ, エクアドル (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.GiantTortoise_JA-JP6597399891_UHD.jpg) 
