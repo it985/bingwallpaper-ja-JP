@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-16 | [サボテンにとまるムネアカコウカンチョウ, 米国 テキサス州 (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_JA-JP7123530976_UHD.jpg) 
+
 2024-02-15 | [水中から顔をのぞかせるカバ, ザンビア (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.HippopotamusDay_JA-JP7192785124_UHD.jpg) 
 
 2024-02-14 | [求愛ダンスを舞うタンチョウ, 北海道 (© Steve Bloom Images/Alamy)](https://global.bing.com/th?id=OHR.BowingCrane_JA-JP6968020887_UHD.jpg) 
