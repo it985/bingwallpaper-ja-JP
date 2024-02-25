@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-26 | [グランドキャニオン国立公園, 米国 アリゾナ州 (© Jeremy Janus/Getty Images)](https://global.bing.com/th?id=OHR.GrandCanyonWinter_JA-JP9819536991_UHD.jpg) 
+
 2024-02-25 | [ハガルツィン修道院, アルメニア (© Alexey Kharitonov/Shutterstock)](https://global.bing.com/th?id=OHR.HaghartsinMonastery_JA-JP9652317145_UHD.jpg) 
 
 2024-02-24 | [アーモンド畑, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AlmondBloom_JA-JP9467341348_UHD.jpg) 
