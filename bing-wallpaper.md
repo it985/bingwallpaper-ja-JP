@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-18 | [アルウラにあるエレファントロック, サウジアラビア (© Lubo Ivanko/Shutterstock)](https://global.bing.com/th?id=OHR.ElephantRock_JA-JP4769472131_UHD.jpg) 
+
 2024-03-17 | [ケリー県, アイルランド (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.StFiniansBay_JA-JP4552826629_UHD.jpg) 
 
 2024-03-16 | [竹を食べるジャイアントパンダ, 中国 成都市 (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.BambooPanda_JA-JP4357227516_UHD.jpg) 
