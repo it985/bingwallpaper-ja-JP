@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-19 | [ブライスキャニオン国立公園, 米国 ユタ州 (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BryceSnow_JA-JP4938121574_UHD.jpg) 
+
 2024-03-18 | [アルウラにあるエレファントロック, サウジアラビア (© Lubo Ivanko/Shutterstock)](https://global.bing.com/th?id=OHR.ElephantRock_JA-JP4769472131_UHD.jpg) 
 
 2024-03-17 | [ケリー県, アイルランド (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.StFiniansBay_JA-JP4552826629_UHD.jpg) 
