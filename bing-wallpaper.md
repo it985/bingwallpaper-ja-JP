@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-22 | [テ・ワイホウ・ウォークウェイ, ニュージーランド  (© Ian Beattie/Alamy)](https://global.bing.com/th?id=OHR.WaikatoWater_JA-JP3608135323_UHD.jpg) 
+
 2024-03-21 | [ブウィンディ原生国立公園, ウガンダ (© Art Wolfe/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.BwindiNationalForest_JA-JP5771338834_UHD.jpg) 
 
 2024-03-20 | [カウチンバレー, カナダ ブリティッシュコロンビア州 (© Kevin Oke/Alamy)](https://global.bing.com/th?id=OHR.MtPrevostDuncan_JA-JP5482628998_UHD.jpg) 
