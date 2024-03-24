@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-25 | [カラフルな色粉を投げ合う様子, インド (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://global.bing.com/th?id=OHR.ColorfulHoli_JA-JP4638350581_UHD.jpg) 
+
 2024-03-24 | [オカバンゴ・デルタ, ボツワナ (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.AntelopeBotswana_JA-JP4419409957_UHD.jpg) 
 
 2024-03-23 | [アマゾン上空の積乱雲, ブラジル (© NASA)](https://global.bing.com/th?id=OHR.AmazonClouds_JA-JP3921092390_UHD.jpg) 
