@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-30 | [セクロピアの木で眠るナマケモノ, コスタリカ (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.SleepySloth_JA-JP5634281010_UHD.jpg) 
+
 2024-03-29 | [サウススタック灯台, イギリス (© mariotlr/Getty Images)](https://global.bing.com/th?id=OHR.SouthStackLight_JA-JP5461690758_UHD.jpg) 
 
 2024-03-28 | [ハンライ, ベトナム (© Thang Tat Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.HangRaiVietnam_JA-JP5262793326_UHD.jpg) 
