@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-02 | [ユトランド半島の風景, デンマーク (© Nick Brundle Photography/Getty Images)](https://global.bing.com/th?id=OHR.JutlandSpring_JA-JP6178777806_UHD.jpg) 
+
 2024-04-01 | [パラッツォ・ファルネーゼのだまし絵, イタリア (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_JA-JP7372412499_UHD.jpg) 
 
 2024-03-31 | [カラフルにペイントされたイースターエッグ, ハンガリー (© ATTILA KISBENEDEK/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HungarianEggs_JA-JP9558688915_UHD.jpg) 
