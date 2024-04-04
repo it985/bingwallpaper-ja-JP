@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-05 | [バハマ諸島, バハマ (© NASA)](https://global.bing.com/th?id=OHR.BahamasSpace_JA-JP3451367539_UHD.jpg) 
+
 2024-04-04 | [吉野山の桜, 奈良県 吉野郡 (© Sean Pavone/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.YoshinoyamaSpring_JA-JP6657067611_UHD.jpg) 
 
 2024-04-03 | [カクシャール・ツー山にかかる虹, キルギス (© Emad aljumah/Getty Images)](https://global.bing.com/th?id=OHR.KyrgyzstanRainbow_JA-JP6458656191_UHD.jpg) 
