@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-12 | [アーチーズ国立公園, 米国 ユタ州 (© Anthony Heflin/Shutterstock)](https://global.bing.com/th?id=OHR.SunsetArchesNP_JA-JP4875080007_UHD.jpg) 
+
 2024-04-11 | [チュルン・メルー滝, ベネズエラ (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.DragonWaterfall_JA-JP4588588498_UHD.jpg) 
 
 2024-04-10 | [アナホリフクロウ, 米国 ワイオミング州 (© Danita Delimont/Getty Images)](https://global.bing.com/th?id=OHR.OwlSiblings_JA-JP4322199651_UHD.jpg) 
