@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-24 | [北米のエンレイソウ, カナダ オンタリオ州 (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_JA-JP4524267784_UHD.jpg) 
+
 2024-04-23 | [トリニティ・カレッジ図書館, アイ��ランド (© Lukas Bischoff/Getty Images)](https://global.bing.com/th?id=OHR.TrinityDublin_JA-JP4414218998_UHD.jpg) 
 
 2024-04-22 | [アオウミガメ, 米国 カリフォルニア州 サンディエゴ (© Ralph Pace/Minden Pictures)](https://global.bing.com/th?id=OHR.EarthDayTurtle_JA-JP4280227627_UHD.jpg) 
