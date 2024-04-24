@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-25 | [氷山の上に立つアデリーペンギン, 南極大陸 (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.PenguinDirections_JA-JP4629543570_UHD.jpg) 
+
 2024-04-24 | [北米のエンレイソウ, カナダ オンタリオ州 (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_JA-JP4524267784_UHD.jpg) 
 
 2024-04-23 | [トリニティ・カレッジ図書館, アイ��ランド (© Lukas Bischoff/Getty Images)](https://global.bing.com/th?id=OHR.TrinityDublin_JA-JP4414218998_UHD.jpg) 
