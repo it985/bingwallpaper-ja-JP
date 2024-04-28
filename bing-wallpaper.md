@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-29 | [福建土楼の鳥瞰図, 中国 福建省 (© Hongjie Han/Getty Images)](https://global.bing.com/th?id=OHR.TulouFujian_JA-JP5056058159_UHD.jpg) 
+
 2024-04-28 | [グアダルーペ山脈国立公園, 米国 テキサス州 (© Adam Mowery/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GuadalupeTexas_JA-JP4951023881_UHD.jpg) 
 
 2024-04-27 | [アンナハチドリの白変種, 米国 カリフォルニア州 (© yhelfman/Getty Images)](https://global.bing.com/th?id=OHR.LeucisticHummingbird_JA-JP4843663786_UHD.jpg) 
