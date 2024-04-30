@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-01 | [和束町の茶畑, 京都府 (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.TeaGarden2024_JA-JP5324737275_UHD.jpg) 
+
 2024-04-30 | [ンゴロンゴロ保全地域, タンザニア  (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.CheetahRain_JA-JP5165159755_UHD.jpg) 
 
 2024-04-29 | [福建土楼の鳥瞰図, 中国 福建省 (© Hongjie Han/Getty Images)](https://global.bing.com/th?id=OHR.TulouFujian_JA-JP5056058159_UHD.jpg) 
