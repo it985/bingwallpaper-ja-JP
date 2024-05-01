@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-02 | [月のクレーター国立公園, 米国 アイダホ州 (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.CratersOfTheMoon_JA-JP5423756803_UHD.jpg) 
+
 2024-05-01 | [和束町の茶畑, 京都府 (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.TeaGarden2024_JA-JP5324737275_UHD.jpg) 
 
 2024-04-30 | [ンゴロンゴロ保全地域, タンザニア  (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.CheetahRain_JA-JP5165159755_UHD.jpg) 
