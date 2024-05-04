@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-05 | [大歩危峡に泳ぐ鯉のぼり, 徳島県 (© fz750/Getty Images)](https://global.bing.com/th?id=OHR.ChildrenDay2024_JA-JP8175282270_UHD.jpg) 
+
 2024-05-04 | [シュケリッグ・ヴィヒルの古代修道院跡 , アイルランド (© MNStudio/Getty Images)](https://global.bing.com/th?id=OHR.JediMonastery_JA-JP7788266024_UHD.jpg) 
 
 2024-05-03 | [ソノラ砂漠, 米国 アリゾナ州 (© Charles Harker/Getty Images)](https://global.bing.com/th?id=OHR.SonoranSpring_JA-JP1708087750_UHD.jpg) 
