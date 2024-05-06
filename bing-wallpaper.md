@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-07 | [ジョードプル, インド ラージャスターン州 (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.BlueCityIndia_JA-JP8642255541_UHD.jpg) 
+
 2024-05-06 | [ピークディストリクト国立公園, イギリス (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.TheRoachesPeakDistrict_JA-JP3004843172_UHD.jpg) 
 
 2024-05-05 | [大歩危峡に泳ぐ鯉のぼり, 徳島県 (© fz750/Getty Images)](https://global.bing.com/th?id=OHR.ChildrenDay2024_JA-JP8175282270_UHD.jpg) 
