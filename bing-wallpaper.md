@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-08 | [マルセイユの街並みとシャトー・ディフ, フランス (© Sergii Figurnyi/Alamy)](https://global.bing.com/th?id=OHR.PortMarseille_JA-JP8874439197_UHD.jpg) 
+
 2024-05-07 | [ジョードプル, インド ラージャスターン州 (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.BlueCityIndia_JA-JP8642255541_UHD.jpg) 
 
 2024-05-06 | [ピークディストリクト国立公園, イギリス (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.TheRoachesPeakDistrict_JA-JP3004843172_UHD.jpg) 
