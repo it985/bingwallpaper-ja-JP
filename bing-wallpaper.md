@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-10 | [ミソール島, インドネシア  (© Giordano Cipriani/Getty Images)](https://global.bing.com/th?id=OHR.MisoolRajaAmpat_JA-JP9378923555_UHD.jpg) 
+
 2024-05-09 | [エミルギャン公園, トルコ (© Ozbalci/Getty Images)](https://global.bing.com/th?id=OHR.EmirganPark_JA-JP9127414605_UHD.jpg) 
 
 2024-05-08 | [マルセイユの街並みとシャトー・ディフ, フランス (© Sergii Figurnyi/Alamy)](https://global.bing.com/th?id=OHR.PortMarseille_JA-JP8874439197_UHD.jpg) 
