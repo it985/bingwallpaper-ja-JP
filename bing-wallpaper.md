@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-17 | [タランギーレ国立公園のアフリカゾウ, タンザニア (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://global.bing.com/th?id=OHR.TarangireElephants_JA-JP9488936307_UHD.jpg) 
+
 2024-05-16 | [ユーレンス現代美術センター, 中国 北京 (© Feng Li/Getty Images News)](https://global.bing.com/th?id=OHR.DayOfLight_JA-JP1257596439_UHD.jpg) 
 
 2024-05-15 | [下鴨神社, 京都 (© beibaoke/Shutterstock)](https://global.bing.com/th?id=OHR.AoiMatsuri2024_JA-JP1018506374_UHD.jpg) 
