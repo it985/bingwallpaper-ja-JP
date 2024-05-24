@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-25 | [アイット・ベン・ハドゥ, モロッコ (© Grant Faint/Getty Images)](https://global.bing.com/th?id=OHR.MoroccoBenhaddou_JA-JP1858999164_UHD.jpg) 
+
 2024-05-24 | [オルデサ・イ・モンテ・ペルディード国立公園, スペイン (© Marisa Estivill/Shutterstock)](https://global.bing.com/th?id=OHR.OrdesaNationalPark_JA-JP1484731643_UHD.jpg) 
 
 2024-05-23 | [インドホシガメ, スリランカ (© Robin Chittenden/Minden Pictures)](https://global.bing.com/th?id=OHR.IndianStarTortoise_JA-JP1239891119_UHD.jpg) 
