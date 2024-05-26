@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-27 | [ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)](https://global.bing.com/th?id=OHR.HedgehogMeadow_JA-JP0023153078_UHD.jpg) 
+
 2024-05-26 | [メソウ・バレー, 米国 ワシントン州 (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.MethowWildflowers_JA-JP2117575252_UHD.jpg) 
 
 2024-05-25 | [アイット・ベン・ハドゥ, モロッコ (© Grant Faint/Getty Images)](https://global.bing.com/th?id=OHR.MoroccoBenhaddou_JA-JP1858999164_UHD.jpg) 
