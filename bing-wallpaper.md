@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-01 | [虹色に輝くサンフランシスコ市庁舎, 米国 カリフォルニア州 (© Josh Edelson/AFP via Getty Images)](https://global.bing.com/th?id=OHR.PrideMonthSF_JA-JP2832342132_UHD.jpg) 
+
 2024-05-31 | [ヨークシャー・デイルズ国立公園, イングランド (© Derek Croucher/Alamy)](https://global.bing.com/th?id=OHR.YorkshireDalesNP_JA-JP2753526222_UHD.jpg) 
 
 2024-05-30 | [エバーグレーズ国立公園, 米国 フロリダ州 (© Jonathan Gewirtz/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.Everglades90th_JA-JP3090725626_UHD.jpg) 
