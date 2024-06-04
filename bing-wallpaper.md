@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-05 | [マソアラ国立公園, マダガスカル (© Dennis van de Water/Shutterstock)](https://global.bing.com/th?id=OHR.MadagascarRiver_JA-JP3088024510_UHD.jpg) 
+
 2024-06-04 | [バルディア国立公園, ネパール (© PACO COMO/Shutterstock)](https://global.bing.com/th?id=OHR.ChestnutBeeEater_JA-JP3019275557_UHD.jpg) 
 
 2024-06-03 | [世界一の自転車都市コペンハーゲン, デンマーク (© Alphotographic/Getty Images)](https://global.bing.com/th?id=OHR.CopenhagenBicycles_JA-JP2959867214_UHD.jpg) 
