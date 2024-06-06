@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2050-01-01 | [La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)](https://global.bing.com/sa/simg/hpb/LaDigue_EN-CA1115245085_UHD.jpg?w=3840) 
+
 2024-06-06 | [オリックスの群れ, ボツワナ (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GemsbokBotswana_JA-JP2673483195_UHD.jpg) 
 
 2024-06-05 | [マソアラ国立公園, マダガスカル (© Dennis van de Water/Shutterstock)](https://global.bing.com/th?id=OHR.MadagascarRiver_JA-JP3088024510_UHD.jpg) 
