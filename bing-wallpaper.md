@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-08 | [北極圏の扉国立公園, 米国 アラスカ州 (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.KillikRiverAlaska_JA-JP3191986449_UHD.jpg) 
+
 2050-01-01 | [La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)](https://global.bing.com/sa/simg/hpb/LaDigue_EN-CA1115245085_UHD.jpg?w=3840) 
 
 2024-06-06 | [オリックスの群れ, ボツワナ (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GemsbokBotswana_JA-JP2673483195_UHD.jpg) 
