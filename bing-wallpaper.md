@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-09 | [バルデナス・レアレス, スペイン (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BardenasBiosphere_JA-JP3263055841_UHD.jpg) 
+
 2024-06-08 | [北極圏の扉国立公園, 米国 アラスカ州 (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.KillikRiverAlaska_JA-JP3191986449_UHD.jpg) 
 
 2050-01-01 | [La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)](https://global.bing.com/sa/simg/hpb/LaDigue_EN-CA1115245085_UHD.jpg?w=3840) 
