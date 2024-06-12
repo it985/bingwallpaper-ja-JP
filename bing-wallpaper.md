@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-13 | [レギスタン広場, ウズベキスタン (© da-kuk/Getty Images)](https://global.bing.com/th?id=OHR.RegistanUzbekistan_JA-JP4174949023_UHD.jpg) 
+
 2024-06-12 | [ビッグ・ベンド国立公園, 米国 テキサス州 (© wisanuboonrawd/Adobe Stock)](https://global.bing.com/th?id=OHR.BigBendMilkyWay_JA-JP3523395036_UHD.jpg) 
 
 2024-06-11 | [アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)](https://global.bing.com/th?id=OHR.Ajisai2024_JA-JP3414608133_UHD.jpg) 
