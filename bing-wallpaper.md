@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-14 | [首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.DhakaBangladesh_JA-JP0528290685_UHD.jpg) 
+
 2024-06-13 | [レギスタン広場, ウズベキスタン (© da-kuk/Getty Images)](https://global.bing.com/th?id=OHR.RegistanUzbekistan_JA-JP4174949023_UHD.jpg) 
 
 2024-06-12 | [ビッグ・ベンド国立公園, 米国 テキサス州 (© wisanuboonrawd/Adobe Stock)](https://global.bing.com/th?id=OHR.BigBendMilkyWay_JA-JP3523395036_UHD.jpg) 
