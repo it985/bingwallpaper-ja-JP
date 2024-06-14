@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-15 | [ナザレのビッグウェーブ, ポルトガル (© Rui Caria/Getty Images)](https://global.bing.com/th?id=OHR.NazareWave_JA-JP0665828544_UHD.jpg) 
+
 2024-06-14 | [首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.DhakaBangladesh_JA-JP0528290685_UHD.jpg) 
 
 2024-06-13 | [レギスタン広場, ウズベキスタン (© da-kuk/Getty Images)](https://global.bing.com/th?id=OHR.RegistanUzbekistan_JA-JP4174949023_UHD.jpg) 
