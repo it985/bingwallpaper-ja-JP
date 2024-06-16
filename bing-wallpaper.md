@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-17 | [ムエルテ山に暮らすハチドリ, コスタリカ (© adrian hepworth/Alamy)](https://global.bing.com/th?id=OHR.HummingThistle_JA-JP1170638705_UHD.jpg) 
+
 2024-06-16 | [ギンギツネの親子, 米国 ワシントン州 (© Chase Dekker/Minden Pictures)](https://global.bing.com/th?id=OHR.RedFoxDad_JA-JP0937901099_UHD.jpg) 
 
 2024-06-15 | [ナザレのビッグウェーブ, ポルトガル (© Rui Caria/Getty Images)](https://global.bing.com/th?id=OHR.NazareWave_JA-JP0665828544_UHD.jpg) 
