@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-19 | [サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)](https://global.bing.com/th?id=OHR.FlorenceDuomo_JA-JP1549442901_UHD.jpg) 
+
 2024-06-18 | [スナイフェルス半島, アイスランド (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.LupinIceland_JA-JP1350338976_UHD.jpg) 
 
 2024-06-17 | [ムエルテ山に暮らすハチドリ, コスタリカ (© adrian hepworth/Alamy)](https://global.bing.com/th?id=OHR.HummingThistle_JA-JP1170638705_UHD.jpg) 
