@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-24 | [クリムトゥ山, インドネシア (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.FloresIsland_JA-JP2788584919_UHD.jpg) 
+
 2024-06-23 | [湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.Lavender2024_JA-JP2620797533_UHD.jpg) 
 
 2024-06-22 | [アマゾン熱帯雨林, ブラジル (© Claus Meyer/plainpicture)](https://global.bing.com/th?id=OHR.BrazilRainforest_JA-JP2489498028_UHD.jpg) 
