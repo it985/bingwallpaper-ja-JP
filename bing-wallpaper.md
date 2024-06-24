@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-25 | [バレー・オブ・ファイアー州立公園, 米国 ネバダ州 (© Clint Losee/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireWave_JA-JP3002445647_UHD.jpg) 
+
 2024-06-24 | [クリムトゥ山, インドネシア (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.FloresIsland_JA-JP2788584919_UHD.jpg) 
 
 2024-06-23 | [湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.Lavender2024_JA-JP2620797533_UHD.jpg) 
