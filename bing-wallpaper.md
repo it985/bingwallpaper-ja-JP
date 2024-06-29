@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-30 | [バリ島のウブド村, インドネシア (© R. Schönebaum/plainpicture)](https://global.bing.com/th?id=OHR.UbudBali_JA-JP9425870638_UHD.jpg) 
+
 2024-06-29 | [コルシカ島のサイクリストたち, フランス (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TourCorsica_JA-JP9224507458_UHD.jpg) 
 
 2024-06-28 | [クリストファー・パークに掲げられたプライドフラッグ, 米国 ニューヨーク州 (© Noam Galai/Getty Images)](https://global.bing.com/th?id=OHR.ChristopherPark_JA-JP8669771947_UHD.jpg) 
