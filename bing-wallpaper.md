@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-06 | [コンウィ城, イギリス (© David Chapman/Alamy)](https://global.bing.com/th?id=OHR.ConwyRiver_JA-JP1379612776_UHD.jpg) 
+
 2024-07-05 | [ノア・ビーチ, オーストラリア クイーンズランド州 (© bjeayes/Getty Images)](https://global.bing.com/th?id=OHR.NoahBeach_JA-JP0901623378_UHD.jpg) 
 
 2024-07-04 | [ムーカンチャイ県, ベトナム (© Kiatanan Sugsompian/Getty Images)](https://global.bing.com/th?id=OHR.YenBaiTerraces_JA-JP0209668675_UHD.jpg) 
