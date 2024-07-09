@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-10 | [浅草寺のほおずき市, 東京 (© c11yg/Getty Images)](https://global.bing.com/th?id=OHR.Lanternplant2024_JA-JP2260534010_UHD.jpg) 
+
 2024-07-09 | [タランパヤ国立公園, アルゼンチン (© Gonzalo Azumendi/Getty Images)](https://global.bing.com/th?id=OHR.TalampayaNP_JA-JP2093558410_UHD.jpg) 
 
 2024-07-08 | [野生のブルーベリー (© Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBlueberries_JA-JP1900215964_UHD.jpg) 
