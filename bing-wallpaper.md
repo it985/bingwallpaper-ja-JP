@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-13 | [カッパドキア, トルコ (© Storm Is Me/Shutterstock)](https://global.bing.com/th?id=OHR.CappadociaRocks_JA-JP5563518724_UHD.jpg) 
+
 2024-07-12 | [マウントレーニア国立公園, 米国 ワシントン州 (© RomanKhomlyak/Getty Images)](https://global.bing.com/th?id=OHR.RainierWildflowers_JA-JP5257571908_UHD.jpg) 
 
 2024-07-11 | [シチリア島のガンジー, イタリア (© Andrea Caruso/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.GangiSicily_JA-JP2426936283_UHD.jpg) 
