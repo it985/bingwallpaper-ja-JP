@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-14 | [ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_JA-JP9009131694_UHD.jpg) 
+
 2024-07-13 | [カッパドキア, トルコ (© Storm Is Me/Shutterstock)](https://global.bing.com/th?id=OHR.CappadociaRocks_JA-JP5563518724_UHD.jpg) 
 
 2024-07-12 | [マウントレーニア国立公園, 米国 ワシントン州 (© RomanKhomlyak/Getty Images)](https://global.bing.com/th?id=OHR.RainierWildflowers_JA-JP5257571908_UHD.jpg) 
