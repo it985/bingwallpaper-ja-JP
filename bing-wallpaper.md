@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-15 | [立石公園, 神奈川県 (© blew_s/Shutterstock)](https://global.bing.com/th?id=OHR.TateishiPark_JA-JP2045138918_UHD.jpg) 
+
 2024-07-14 | [ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_JA-JP9009131694_UHD.jpg) 
 
 2024-07-13 | [カッパドキア, トルコ (© Storm Is Me/Shutterstock)](https://global.bing.com/th?id=OHR.CappadociaRocks_JA-JP5563518724_UHD.jpg) 
