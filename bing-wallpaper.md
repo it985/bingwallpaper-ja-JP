@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-21 | [ザンジバル諸島のケンドワ村, タンザニア (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.ZanzibarBoats_JA-JP2984048559_UHD.jpg) 
+
 2024-07-20 | [観測機器で撮影された月 (© Victor Blum/Getty Images)](https://global.bing.com/th?id=OHR.MineralMoon_JA-JP2878137098_UHD.jpg) 
 
 2024-07-19 | [大湿原パンタナル, ブラジル (© Tambako the Jaguar/Getty Images)](https://global.bing.com/th?id=OHR.YoungJaguar_JA-JP3725468269_UHD.jpg) 
