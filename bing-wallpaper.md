@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-24 | [川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)](https://global.bing.com/th?id=OHR.WindBell2024_JA-JP3427351394_UHD.jpg) 
+
 2024-07-23 | [メトーニ城, ギリシャ (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_JA-JP3234736349_UHD.jpg) 
 
 2024-07-22 | [ローテンブルク・オプ・デア・タウバー, ドイツ (© kanuman/Getty Images)](https://global.bing.com/th?id=OHR.MedievalRothenburg_JA-JP3111613598_UHD.jpg) 
