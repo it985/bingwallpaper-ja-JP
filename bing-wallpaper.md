@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-29 | [ジム・コーベット国立公園, インド ウッタラーカンド州 (© Sourabh Bharti/Getty Images)](https://global.bing.com/th?id=OHR.CorbettTigers_JA-JP7161301838_UHD.jpg) 
+
 2024-07-28 | [カノールス・ハヴスバッド, スウェーデン スコーネ県 (© Martin Wahlborg/Getty Images)](https://global.bing.com/th?id=OHR.BeachHutsSweden_JA-JP6949327574_UHD.jpg) 
 
 2024-07-27 | [プファルツ地方, ドイツ ラインラント＝プファルツ州 (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.RhinelandVineyards_JA-JP6772337865_UHD.jpg) 
