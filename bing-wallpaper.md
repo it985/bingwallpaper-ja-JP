@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-31 | [ブライスキャニオン国立公園, 米国 ユタ州 (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.HoodoosBryce_JA-JP7560776836_UHD.jpg) 
+
 2024-07-30 | [サン・ジミニャーノ, イタリア トスカーナ州 (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.GimignanoTuscany_JA-JP7399834117_UHD.jpg) 
 
 2024-07-29 | [ジム・コーベット国立公園, インド ウッタラーカンド州 (© Sourabh Bharti/Getty Images)](https://global.bing.com/th?id=OHR.CorbettTigers_JA-JP7161301838_UHD.jpg) 
