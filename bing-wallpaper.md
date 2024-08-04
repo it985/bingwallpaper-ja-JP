@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-05 | [ハートフォードシャーのラベンダー畑, イギリス (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.HertfordshireLavender_JA-JP8708116437_UHD.jpg) 
+
 2024-08-04 | [武隆カルスト国立地質公園, 中国 重慶市 (© Pav-Pro Photography Ltd/Shutterstock)](https://global.bing.com/th?id=OHR.WulongKarst_JA-JP8479493036_UHD.jpg) 
 
 2024-08-03 | [カプタイ湖, ���ングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.KaptaiLake_JA-JP8287101456_UHD.jpg) 
