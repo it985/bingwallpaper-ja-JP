@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-06 | [巨大な吹き流し, 宮城県 仙台市 (© rujin/Shutterstock)](https://global.bing.com/th?id=OHR.SendaiTanabata2024_JA-JP8906260169_UHD.jpg) 
+
 2024-08-05 | [ハートフォードシャーのラベンダー畑, イギリス (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.HertfordshireLavender_JA-JP8708116437_UHD.jpg) 
 
 2024-08-04 | [武隆カルスト国立地質公園, 中国 重慶市 (© Pav-Pro Photography Ltd/Shutterstock)](https://global.bing.com/th?id=OHR.WulongKarst_JA-JP8479493036_UHD.jpg) 
