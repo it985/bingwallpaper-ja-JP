@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-08 | [インドコキンメフクロウ, タイ バンコク (© Tfilm/Getty Images)](https://global.bing.com/th?id=OHR.SpottedOwlet_JA-JP9234740493_UHD.jpg) 
+
 2024-08-07 | [ミシガン湖とセントジョセフ灯台, 米国 ミシガン州 (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.MichiganLighthouse_JA-JP9089561371_UHD.jpg) 
 
 2024-08-06 | [巨大な吹き流し, 宮城県 仙台市 (© rujin/Shutterstock)](https://global.bing.com/th?id=OHR.SendaiTanabata2024_JA-JP8906260169_UHD.jpg) 
