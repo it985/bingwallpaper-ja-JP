@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-10 | [ケネディ湖州立公園, カナダ ブリティッシュコロンビア州 (© EB Adventure Photography/Shutterstock)](https://global.bing.com/th?id=OHR.TofinoVancouver_JA-JP8938759537_UHD.jpg) 
+
 2024-08-09 | [サクサイワマン, ペルー (© SL_Photography/Getty Images)](https://global.bing.com/th?id=OHR.IncaRuinPeru_JA-JP8602736251_UHD.jpg) 
 
 2024-08-08 | [インドコキンメフクロウ, タイ バンコク (© Tfilm/Getty Images)](https://global.bing.com/th?id=OHR.SpottedOwlet_JA-JP9234740493_UHD.jpg) 
