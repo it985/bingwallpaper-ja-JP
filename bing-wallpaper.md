@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-12 | [アンボセリ国立公園, ケニア (© Ruzdi Ekenheim/Getty Images)](https://global.bing.com/th?id=OHR.ElephantsAmboseli_JA-JP9387144040_UHD.jpg) 
+
 2024-08-11 | [草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)](https://global.bing.com/th?id=OHR.MountainDay2024_JA-JP9130465329_UHD.jpg) 
 
 2024-08-10 | [ケネディ湖州立公園, カナダ ブリティッシュコロンビア州 (© EB Adventure Photography/Shutterstock)](https://global.bing.com/th?id=OHR.TofinoVancouver_JA-JP8938759537_UHD.jpg) 
