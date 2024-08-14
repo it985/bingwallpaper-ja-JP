@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-15 | [ソンドン洞, ベトナム (© Geng Xu/Getty Images)](https://global.bing.com/th?id=OHR.HangCave_JA-JP0202736881_UHD.jpg) 
+
 2024-08-14 | [ジョシュア・ツリー国立公園, 米国 カリフォルニア州 (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JoshuaTreeNP_JA-JP9735541892_UHD.jpg) 
 
 2024-08-13 | [テラシュチカ自然公園, クロアチア (© Ilija Ascic/Shutterstock)](https://global.bing.com/th?id=OHR.DugiOtokCroatia_JA-JP9531782423_UHD.jpg) 
