@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-17 | [アルファンジーナ灯台, ポルトガル (© Andreas Kunz/Getty Images)](https://global.bing.com/th?id=OHR.AlfanzinaLighthouse_JA-JP5005128092_UHD.jpg) 
+
 2024-08-16 | [大文字山の大文字, 京都 (© Masako Ishida/Getty Images)](https://global.bing.com/th?id=OHR.Gozan2024_JA-JP4841375373_UHD.jpg) 
 
 2024-08-15 | [ソンドン洞, ベトナム (© Geng Xu/Getty Images)](https://global.bing.com/th?id=OHR.HangCave_JA-JP0202736881_UHD.jpg) 
