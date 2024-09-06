@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-09)
-![](https://cn.bing.com/th?id=OHR.GujoHachiman_JA-JP9477689405_UHD.jpg&w=1000)Today: [郡上八��城, 岐阜県 郡上市 (© ta2funk ito/500px/Getty Images)](https://cn.bing.com/th?id=OHR.GujoHachiman_JA-JP9477689405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.GujoHachiman_JA-JP9477689405_UHD.jpg&w=1000)Today: [郡上八幡城, 岐阜県 郡上市 (© ta2funk ito/500px/Getty Images)](https://cn.bing.com/th?id=OHR.GujoHachiman_JA-JP9477689405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.GujoHachiman_JA-JP9477689405_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-06 [download 4k](https://cn.bing.com/th?id=OHR.GujoHachiman_JA-JP9477689405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.GujoHachiman_JA-JP9477689405_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-06 [download 4k](https://cn.bing.com/th?id=OHR.GujoHachiman_JA-JP9477689405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.TIFF2024_JA-JP6140620870_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-05 [download 4k](https://cn.bing.com/th?id=OHR.TIFF2024_JA-JP6140620870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
