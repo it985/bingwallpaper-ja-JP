@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-12 | [アメリカオシ, カナダ ケベック州 (© Maxime Riendeau/Getty Images)](https://cn.bing.com/th?id=OHR.QuebecDuck_JA-JP7270367085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-11 | [ケープ・ブレトン島, カナダ ノバスコシア州 (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-11 | [ケープ・ブレトン島, カナダ ノバ���コシア州 (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
