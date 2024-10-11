@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&w=1000)Today: [ケープ・ブレトン島, カナダ ノバ���コシア州 (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&w=1000)Today: [ケープ・ブレトン島, カナダ ノバスコシア州 (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-10-11 [download 4k](https://cn.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-10-11 [download 4k](https://cn.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.SoranoItaly_JA-JP6459075522_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-10-10 [download 4k](https://cn.bing.com/th?id=OHR.SoranoItaly_JA-JP6459075522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
