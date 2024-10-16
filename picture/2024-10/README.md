@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-10)
-![](https://cn.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg&w=1000)Today: [マラ川を渡るヌー��群れ, ケニア (© Ayzenstayn/Getty Images)](https://cn.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg&w=1000)Today: [マラ川を渡るヌーの群れ, ケニア (© Ayzenstayn/Getty Images)](https://cn.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-10-16 [download 4k](https://cn.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-10-16 [download 4k](https://cn.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.FossilsDorset_JA-JP8513856980_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-10-15 [download 4k](https://cn.bing.com/th?id=OHR.FossilsDorset_JA-JP8513856980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
