@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-21 | [ライトアップされた青い池, 北海道 美瑛町 (© Sean Pavone/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.BluePond2024_JA-JP2198755551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-20 | [ロヴァニエミ近郊のサンタクロース村, フィ��ランド (© Smelov/Shutterstock)](https://cn.bing.com/th?id=OHR.SantaClausVillage_JA-JP9442890850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-20 | [ロヴァニエミ近郊のサンタクロース村, フィンランド (© Smelov/Shutterstock)](https://cn.bing.com/th?id=OHR.SantaClausVillage_JA-JP9442890850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
