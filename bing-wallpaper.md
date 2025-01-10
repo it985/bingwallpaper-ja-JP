@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-11 | [古都メクネス, モロッコ (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.MeknesMorocco_JA-JP3587132795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-10 | [アブラハム湖, カナダ アルバータ州 (© Basic Elements Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BubbleLake_JA-JP3345547738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-09 | [ナミブ砂漠, ナミビア (© Airpano/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.NamibiaDunes_JA-JP9057669220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
